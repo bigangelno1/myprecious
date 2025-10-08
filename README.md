@@ -1,7 +1,6 @@
 # 各种资料合集
-范围：精彩公开课、演唱会、电影、剧集、网站、教程
-关注B站用户，小刀xxxxxx，私信可索取带关键字版本。
-open web links about all kinds of video audio book website resources
+## 范围：精彩公开课、演唱会、电影、剧集、网站、教程
+## 关注B站用户，小刀xxxxxx，私信可索取带关键字版本。
 序号
 标题
 合集标题
