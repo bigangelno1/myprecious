@@ -42,1642 +42,619 @@
 
 
 
-
-ID
-链接地址
-精简标题
-标题
-
-1
-https://space.bilibili.com/1263732318?spm_id_from=333.788.upinfo.head.click
-B站UP主，黑纹白斑马，思想提升
-黑纹白斑马，思想提升
-
-2
-https://www.bilibili.com/video/BV1ak4y1K7bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-没脸鉴车合集
-
-3
-https://www.bilibili.com/video/BV184421S7wk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-出行又平安
-
-4
-https://www.bilibili.com/video/BV19t421E7iH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-意外失误（很疼系列）
-
-5
-https://www.bilibili.com/video/BV1Wppce4ELu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-安全事故合集
-
-6
-https://www.bilibili.com/video/BV1JP411Z7h5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【【英文版+中文版+PDF漫画+练习册】巴菲特的神秘百万俱乐部 巴菲特教你财商!巴菲特亲自出版，比尔盖茨配音的财商教育动画片和配套绘本 外挂字墓】
-
-7
-https://www.bilibili.com/video/BV1vb411h7Z4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【大气探测学【北京大学】】
-
-8
-https://www.bilibili.com/video/BV1sXpjzhEC3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-X档案，电影版，国语配音
-【X档案 电影版【国语配音】】
-
-9
-https://www.bilibili.com/video/BV1t44y1s78q/?share_source=copy_we
-
-【【北京大学】电路分析原理（2009）】
-
-10
-https://www.bilibili.com/video/BV1LVKUz8EZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Arthur 亚瑟小子，英文版动画片全1-25季
-【《Arthur 亚瑟小子》英文版动画片全1-25季音视频台词文本】
-
-11
-https://www.bilibili.com/video/BV1Pu4y1a7iC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全3季78集，风靡全球50年的大红狗《Clifford big red dog》 新版
-【【全3季78集】风靡全球50年的大红狗《Clifford big red dog》 新版高清动画片】
-
-12
-https://www.bilibili.com/video/BV1c84y1a7YD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-39集全，哆啦A梦英文版
-【【39集全】哆啦A梦英文版】
-
-13
-https://www.bilibili.com/video/BV1BW4y1E7Qm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-动画/短片
-
-14
-https://www.bilibili.com/video/BV1bE41147AV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-我是中国军人，油管，宣传片
-YouTube上亿播放量的宣传片：我是中国军人
-
-15
-https://www.bilibili.com/video/BV1GJ411v7aP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-日共宣传片
-日共宣传片震撼我妈日本共产党
-
-16
-https://www.bilibili.com/video/BV1ub411K7zk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学公开课系列006，法律实证研究，白建军
-【北京大学公开课系列006: 法律实证研究 白建军】
-
-17
-https://www.bilibili.com/video/BV1ks411F7aC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，金融犯罪学，白建军，全21讲
-财经，北京大学，金融犯罪学，白建军，全21讲
-
-18
-https://www.bilibili.com/video/BV1Ms411y7vG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【北京大学公开课：法理学】
-
-19
-https://www.bilibili.com/video/BV11J411M73k/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-比尔•盖茨：虽然我从哈佛退学了，但我当时是可以随时回去的
-鸡汤都是骗人的！比尔•盖茨：虽然我从哈佛退学了，但我当时是可以随时回去的
-
-20
-https://www.bilibili.com/video/BV1k7411M76A/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，于希贤，风水学概论
-北京大学风水学概论
-
-21
-https://www.bilibili.com/video/BV1ocKHzXEeu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-国学，堪舆学，风水地理，基础入门知识（全集）
-国学，堪舆学，风水地理，基础入门知识（全集）
-
-22
-https://www.bilibili.com/video/BV1sM7BzVEAA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-倪海厦，堪舆学32集
-倪海厦，堪舆学，32集，完整课程，适合自学
-
-23
-https://www.bilibili.com/video/BV1S7411L784/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，罗炜，会计学基础（完结）
-北京大学，公开课，会计学基础（完结）
-
-24
-https://www.bilibili.com/video/BV17CvSenE5x/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-从0开始一步步实现一个图形界面游戏
-学了C语言还只会写黑窗口？带你从0开始一步步实现一个图形界面游戏！（附源码+讲解）】
-
-25
-https://www.bilibili.com/video/BV1C7agzYEFk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Python全套教学视频
-全586集，Python全套教学视频，从0基础小白到自由产粮看这套就够了】
-
-26
-https://www.bilibili.com/video/BV1Yt411N785/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Python语言程序设计（上）
-Python语言程序设计（上）
-
-27
-https://www.bilibili.com/video/BV16t411N73Z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Python语言程序设计（下）
-Python语言程序设计（下）
-
-28
-https://www.bilibili.com/video/BV13Fe3zQEKJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-0基础小白快速进阶黑客大佬
-全108集，可能是B站最好的黑客教学，手把手教学，通俗易懂！0基础小白快速进阶黑客大佬
-
-29
-https://www.bilibili.com/video/BV1a5411s7mM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，德稻，计算机概论，C语言，100讲
-公开课，北京大学，计算机概论，C语言，100讲
-
-30
-https://www.bilibili.com/video/BV1gW41197Yc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，阎宏飞，计算概论
-北大，计算概论
-
-31
-https://www.bilibili.com/video/BV1eA411b7ey/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-计算概论与程序设计基础，北京大学，李戈
-计算概论与程序设计基础，北京大学，李戈
-
-32
-https://space.bilibili.com/1010097026?spm_id_from=333.788.upinfo.head.click
-7天快速入门机器学习
-黑马程序员人工智能课程，7天快速入门机器学习
-
-33
-https://www.bilibili.com/video/BV19E411Y7Kw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TensorFlow 2.0深度学习入门
-TensorFlow 2.0深度学习入门-中文书
-
-34
-https://www.bilibili.com/video/BV1j9edzWEPc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全198集，UG建模保姆级教程，清华大佬198小时内部培训教程，B站最用心的UG零基础系统教程，7天掌握建模
-【【全198集】UG建模保姆级教程 | 清华大佬198小时讲完的UG建模内部培训教程 | 全程干货无废话 | B站最用心的UG零基础系统教程 | 7天掌握建模！】
-
-35
-https://www.bilibili.com/bangumi/play/ep121248/?share_source=copy_we
-911： 改变世界的一天
-911： 改变世界的一天
-
-36
-https://www.bilibili.com/video/BV1tK4y1r7SA?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Discovery生活科技大解密S1-8
-纪录片，Discovery，生活科技大解密（1-8季）[英语中字]
-
-37
-https://www.bilibili.com/video/BV1A5411H7cN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，货币银行学，黄益平（全24讲）
-公开课，北京大学，货币银行学，黄益平，全24讲
-
-38
-https://www.bilibili.com/video/BV1Rx411L7ox/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-货币银行学，北京大学，国家发展研究院，黄益平
-货币银行学，北京大学国家发展研究院，黄益平主讲
-
-39
-https://www.bilibili.com/video/BV1KpjMztEPX?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK儿童百科
-全100集，DK儿童百科，每天一集涨知识，孩子必看自然科普动画纪录片
-
-40
-https://www.bilibili.com/video/BV1FH4y17719?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-MC中的经济学
-MC中的经济学
-
-41
-https://www.bilibili.com/video/BV1J34y1K7ZD?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-草木有言，DK植物大百科
-草木有言，DK植物大百科
-
-42
-https://www.bilibili.com/video/BV1p7KfzqEZs?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK儿童百科全书
-DK儿童百科全书，动画版（1080P超清普通话48集）
-
-43
-https://www.bilibili.com/video/BV1VaNDzwE6h?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK系列百科《熊猫博士的奇妙探索之旅》
-全230集，DK系列百科《熊猫博士的奇妙探索之旅》从自然万象到宇宙奥秘的动画纪实百科
-
-44
-https://www.bilibili.com/video/BV1xZ7YzeEa4?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK儿童百科
-DK儿童百科动画，每日打卡！带孩子解锁自然科普知识，必看的科学启蒙纪录片来啦~
-
-45
-https://www.bilibili.com/video/BV14C6KYuEZs/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-BBC户外自然科普儿童英文节目《Go Wild》
-BBC户外自然科普儿童英文节目《Go Wild》45集，1080P高清视频带英文字幕+音频MP3】
-
-46
-https://www.bilibili.com/video/BV1Ga411A71Z?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Kur科普Kurzgesagt
-Kur科普，100集+全网最全Kurzgesagt视频全辑（中英字幕）
-
-47
-https://space.bilibili.com/1010097026?spm_id_from=333.788.upinfo.head.click
-B站UP主，道理学趣味，物理科普
-道理学趣味，物理科普
-
-48
-https://www.bilibili.com/video/BV1jnTfzbET6?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK儿童百科
-全100集，DK儿童百科，每天一集涨知识，孩子必看百科科普动画纪录片
-
-49
-https://www.bilibili.com/video/BV1vE421u7Pa/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-2024泰国小姐泳装全场
-8K，2024泰国小姐泳装全场
-
-50
-https://www.bilibili.com/video/BV18t411J7nF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-公共日语，共74集，北京大学，滕军
-公共日语，共74集，北京大学，滕军教授
-
-51
-https://www.bilibili.com/video/BV1ex411577i/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【【北京大学】保护生物学】
-
-52
-https://www.bilibili.com/video/BV1db411E7aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，分子生物学，朱玉贤
-【【北京大学】分子生物学朱玉贤】
-
-53
-https://www.bilibili.com/video/BV1ak4y1r78M/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，高级神经生物学（上）
-北京大学，高级神经生物学（上）
-
-54
-https://www.bilibili.com/video/BV144411T7pN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【北京大学2018年12月数学系研究生入学考试数学分析科目最后一题的第二问】
-
-55
-https://www.bilibili.com/video/BV1TZ4y1P7XQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，高等代数2020春
-北京大学公开课，高等代数（2020春）
-
-56
-https://www.bilibili.com/video/BV1Fr4y1T7kP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，精品公开课，王福正，高等代数（全59讲）
-北大精品公开课，高等代数（全59讲）
-
-57
-https://www.bilibili.com/video/BV19W411G7QU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，丘维声，高等代数
-北大，高等代数
-
-58
-https://www.bilibili.com/video/BV1jR4y1M78W/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，丘维声，高等代数课程1080P高清修复版(全151集)
-北大丘维声教授清华高等代数课程1080P高清修复版(全151集)
-
-59
-https://www.bilibili.com/video/BV17p4y1h7bT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【【北京大学公开课】低维流形（全23讲）】
-
-60
-https://www.bilibili.com/video/BV1KymbYpEMi?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK图解数学
-DK数学启蒙，动画184个数学核心知识点！274种数学思维！详细讲解每个数学知识
-
-61
-https://www.bilibili.com/video/BV1LGgXzHEDA?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK图解数学
-DK图解数学
-
-62
-https://www.bilibili.com/video/BV1y34y1s7x7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-那些无法超越的台词与画面
-那些无法超越的台词与画面
-
-63
-https://www.bilibili.com/video/BV1vx411r7uA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【【北京大学公开课】洪子诚老师《中国当代文学史》编写中的几个问题】
-
-64
-https://www.bilibili.com/video/BV1kP411u7jr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-蝴蝶步2.0
-蝴蝶步2.0
-
-65
-https://www.bilibili.com/video/BV1AM4y1M71p/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-猛男版新宝岛
-破亿纪念!猛男版新宝岛 4K高清重置加强版
-
-66
-https://www.bilibili.com/video/BV1LM411H79F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-日本红极一时的登美丘魔性舞蹈
-4K日本红极一时的登美丘魔性舞蹈
-
-67
-https://www.bilibili.com/video/BV1Zs4y1F7i6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-日本一流桑巴舞
-日本一流桑巴舞
-
-68
-https://www.bilibili.com/video/BV1Wx411T7uE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【电磁学 (北京大学陈秉乾教授)】
-
-69
-https://www.bilibili.com/video/BV1B54y1p76R/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【陈秉乾 电磁学 北京大学物理四大神兽之一 当代国内最好的电磁学课程（内含教材与资料）】
-
-70
-https://www.bilibili.com/video/BV1Hz4y1S7wt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-钟锡华，光学，北京大学物理四大神兽之一，当代国内最好的光学课程
-钟锡华，光学，北京大学物理四大神兽之一，当代国内最好的光学课程（内含教材与资料）
-
-71
-https://www.bilibili.com/video/BV1Nr4y1P7Pt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，叶沿林，核物理与粒子物理导论
-北京大学，公开课，核物理与粒子物理导论
-
-72
-https://www.bilibili.com/video/BV1Dx411f7bi/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【电磁学 北京大学 王稼军教授】
-
-73
-https://www.bilibili.com/video/BV1tt411E74M/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【北京大学-变态心理学（国家级精品课）】
-
-74
-https://www.bilibili.com/video/BV1ut411n7Bd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-
-【变态心理学 北京大学】
-
-75
-https://www.bilibili.com/video/BV12b411B7Ho/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-25岁前请逼自己成为这样的人
-被分享60万次的TED演讲：25岁前请逼自己成为这样的人 美国伯克利】
-
-76
-https://www.bilibili.com/video/BV1NE41197sr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED，改变自己，只需要两年时间
-TED：改变自己，只需要两年时间
-
-77
-https://www.bilibili.com/video/BV1mx411a78C/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED，少女对于性愉悦的观感
-TED，少女对于性愉悦的观感（英汉双语字幕）
-
-78
-https://www.bilibili.com/video/BV1q4411E7y4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED演讲，30岁前，请逼自己成为这样的人
-TED演讲，30岁前，请逼自己成为这样的人
-
-79
-https://www.bilibili.com/video/BV1kx411M72i/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED演讲，麦克•贝茨：我难忘的一次中国行
-TED演讲，麦克•贝茨：我难忘的一次中国行
-
-80
-https://www.bilibili.com/video/BV1Zb411B71v/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED演讲，一个最简单的方式戒掉坏习惯！
-TED演讲：一个最简单的方式戒掉坏习惯！
-
-81
-https://www.bilibili.com/video/BV1r4411q7JT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED演讲：面对不确定的未来，我们该怎么办？
-TED演讲：面对不确定的未来，我们该怎么办？
-
-82
-https://www.bilibili.com/video/BV1Kx411i7tY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-如何训练一个人的逻辑思维能力
-TED演讲：如何训练一个人的逻辑思维能力
-
-83
-https://www.bilibili.com/video/BV1kt411e7nz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-为什么你无法说服杠精？
-为什么你无法说服杠精？这个TED讲透了。
-
-84
-https://www.bilibili.com/video/BV1sb411h7de/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-2018年TED英语演讲精选67篇
-TED演讲合集2018年TED英语演讲精选67篇【高清版】（中英文对照）】
-
-85
-https://www.bilibili.com/video/BV1ft411g7Jm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED63集精读版
-TED，63集精读版•学习党必备跟读练习（视频+音频+中英文对照文本）
-
-86
-https://www.bilibili.com/video/BV1vcaAzwEYE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-TED演讲精读合集30集年度版
-TED演讲精读合集30集年度版，听力瓶颈期必看！（双语精读字幕）
-
-87
-https://www.bilibili.com/video/BV1XRS9YzEX8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-现代舞，表演，合集
-现代舞，表演，合集
-
-88
-https://www.bilibili.com/video/BV1Kt4y1y7uz?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-夏威夷传统草裙舞，男
-夏威夷传统草裙舞
-
-89
-https://www.bilibili.com/video/BV1JT4y1F7JR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北大公开课，“非遗”之首——昆曲经典艺术欣赏
-【北大公开课：《“非遗”之首——昆曲经典艺术欣赏》】
-
-90
-https://www.bilibili.com/video/BV1M5411p7PB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Crush
-油管7千万播放的暗恋神曲《Crush》，说不出口的悸动，恋爱的感觉！
-
-91
-https://www.bilibili.com/video/BV1aq4y1g7eo/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Far Away From Home
-被称全球最好听歌曲之一《Far Away From Home》，前奏一响就沦陷
-
-92
-https://www.bilibili.com/video/BV1Wy4y1e71h/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-See You Again，油管4亿播放
-开口跪，See You Again，油管4亿播放组合红岩谷绝美翻唱
-
-93
-https://www.bilibili.com/video/BV1u741117Ps/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-We are the world
-经典《We are the world》，每次听都是震撼心灵的盛宴
-
-94
-https://www.bilibili.com/video/BV19B4y1m77e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-超燃励志
-超燃励志
-
-95
-https://www.bilibili.com/video/BV1cA411i7u2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-钢铁洪流进行曲，油管
-油管搬运)你敢相信这是一个日本人剪的《钢铁洪流进行曲
-
-96
-https://www.bilibili.com/video/BV1EHsTeuE6q/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-护花使者
-大唐电音！！！中国人不蹦洋迪！！！《护花使者》完整版~
-
-97
-https://www.bilibili.com/video/BV1Ft411Z78N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-江南皮革厂倒闭了，神曲
-江南皮革厂倒闭了，洗脑神曲视频版
-
-98
-https://www.bilibili.com/video/BV1Sr4y1h79z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-梦该醒了，少年
-“梦该醒了，少年”
-
-99
-https://www.bilibili.com/video/BV176M3zPEZu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-莫愁乡
-莫愁乡，亚细亚旷世奇才
-
-100
-https://www.bilibili.com/video/BV1sw411971F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-未来式情歌
-未来式情歌
-
-101
-https://www.bilibili.com/video/BV12pnHzzE5a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-我要对你实行我的爱情专属权
-“我要对你实行我的爱情专属权”
-
-102
-https://www.bilibili.com/video/BV1jg411b7T7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-坐忘道
-坐忘道完整版
-
-103
-https://www.bilibili.com/video/BV1Tq4y1778D/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-海阔天空
-4K，Beyond《海阔天空》神级现场！
-
-104
-https://www.bilibili.com/video/BV1cJ4m1N74N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-真的爱你
-Beyond《真的爱你》经典神曲现场！
-
-105
-https://www.bilibili.com/video/BV1cJ4m1N74N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Beyond合集
-Beyond
-
-106
-https://www.bilibili.com/video/BV1KM411f7fm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-萨勒芬妮愉快地给你唱了
-好耶！是萨勒芬妮愉快地给你唱了Childhood Dreams
-
-107
-https://www.bilibili.com/video/BV1BX4y1c7gd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-追梦赤子心
-4K，GALA《追梦赤子心》经典现场！
-
-108
-https://www.bilibili.com/video/BV1us41137Fd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-极乐净土
-Miume?MARiA217极乐净土舞见 第4弹
-
-109
-https://www.bilibili.com/video/BV11P4y1K7Qp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Wake
-超燃励志，Wake，Hillsong Young&Free 喂，醒醒，该出发了
-
-110
-https://www.bilibili.com/video/BV1QL411c7CY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全球10位艺术家合唱
-开口跪，全球10位艺术家合唱，Imagine，高潮瞬间潸然泪下
-
-111
-https://www.bilibili.com/video/BV1RN4y1n75t/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-That Girl
-奥斯卡金曲《That Girl》#车载音乐 #欧美音乐 #thatgirl
-
-112
-https://www.bilibili.com/video/BV19B4y1m77e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Counting Stars
-超燃励志，Counting Stars，OneRepublic，充满活力不迷茫
-
-113
-https://www.bilibili.com/video/BV1Af421X7Kg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Hello
-4K，阿黛尔《Hello》火力全开的现场！
-
-114
-https://www.bilibili.com/video/BV1a7411z7m7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Someone Like You
-4K，阿黛尔《Someone Like You》万人大合唱现场！
-
-115
-https://www.bilibili.com/video/BV1Af421X7Kg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-阿黛尔合集
-阿黛尔
-
-116
-https://www.bilibili.com/video/BV1Hx411x7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-My All
-初识不知曲中意 再听已是曲中人
-
-117
-https://www.bilibili.com/video/BV1EX4y1s7RM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Kingfish 
-但凡少一斤都唱不出这种感觉
-
-118
-https://www.bilibili.com/video/BV1qU4y1F73A/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-See You Again
-4K查理•普斯《See You Again》爆火神曲！
-
-119
-https://www.bilibili.com/video/BV1EP4y1s7K3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-千千阙歌
-4K，陈慧娴《千千阙歌》最强音质版本！粤语史诗级神曲
-
-120
-https://www.bilibili.com/video/BV1p4411z7Dy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-无名之辈
-陈雪燃《无名之辈》已循环十遍，每次听的都很热血沸腾
-
-121
-https://www.bilibili.com/video/BV1Yv411K7PY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Dance Monkey，甜嗓
-燃起来了，Dance Monkey与甜嗓的奇妙搭配
-
-122
-https://www.bilibili.com/video/BV1mT4y1d7qR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Hey Jude ，白发老太
-再唱披头士，已是白头
-
-123
-https://www.bilibili.com/video/BV11S411P7k7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-LaLaLa
-你已经迷上山峰，无法回头了，La La La
-
-124
-https://www.bilibili.com/video/BV1DL4y1B7p7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-爱人错过
-爱人错过，翻唱
-
-125
-https://www.bilibili.com/video/BV1RZ4y1W7fD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-爱如潮水
-那些在学校用劣质音响唱出百万调音师的同学
-
-126
-https://www.bilibili.com/video/BV1gg4y1s7jN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-百年孤寂，微醺版
-微醺版，百年孤寂
-
-127
-https://www.bilibili.com/video/BV1B64y1q7Cw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-反方向的钟
-反方向的钟，你为什么不爱我
-
-128
-https://www.bilibili.com/video/BV1FT4y1o7MK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-反方向的钟
-反方向的钟，让人穿梭时空的治愈嗓音
-
-129
-https://www.bilibili.com/video/BV1kJ41127ap/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-搁浅
-搁浅》我只能永远读着对白，读着我给你的伤害—这歌难，唱的很憋
-
-130
-https://www.bilibili.com/video/BV1D4411K7mA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-激情演唱，吻得太逼真
-傻屌室友，激情演唱，吻得太逼真
-
-131
-https://www.bilibili.com/video/BV1Sa4y1y7Qd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-凄美地
-嘿，等我找到你！
-
-132
-https://www.bilibili.com/video/BV1dP4y1g7D4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-青花瓷
-青花瓷，天青色等烟雨，而我在等你
-
-133
-https://www.bilibili.com/video/BV1Yf4y1g7Na/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-杀死那个石家庄人
-杀死那个石家庄人，希望大家喜欢哈哈
-
-134
-https://www.bilibili.com/video/BV1Wy4y1B7f6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-杀死那个石家庄人
-杀死那个石家庄人
-
-135
-https://www.bilibili.com/video/BV1TG41197SK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-奢香夫人
-唱《奢香夫人》，做气质学生
-
-136
-https://www.bilibili.com/video/BV1Vi4y1x7bk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-他不爱我，清唱
-清唱，他不爱我
-
-137
-https://www.bilibili.com/video/BV1gH4y157KF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-虚拟，丐版
-你是我未曾拥有无法捕捉的亲昵，宿舍翻唱《虚拟》
-
-138
-https://www.bilibili.com/video/BV1VZ4y1T78D/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-一路向北
-一路向北
-
-139
-https://www.bilibili.com/video/BV1uJ411U7a2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-一路向北
-我一路向北，离开有你的季节，你说你好累，已无法再爱上谁   颓了！
-
-140
-https://www.bilibili.com/video/BV1JE411Z7mD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-有点甜，大叔翻唱
-大叔翻唱《有点甜》，听了看了想打人！
-
-141
-https://www.bilibili.com/video/BV1aTvieqEfw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-波西米亚狂想抽
-波西米亚狂想抽
-
-142
-https://www.bilibili.com/video/BV1ap4y1r7L8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Колыбельная
-当下最火俄语歌，Колыбельная，战争是残酷的，和平来之不易
-
-143
-https://www.bilibili.com/video/BV1kJ41127ap/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-歌者瓜牛，合集
-颓废期合集
-
-144
-https://www.bilibili.com/video/BV1gH4y157KF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-努力生活的西鱼
-歌曲合集
-
-145
-https://www.bilibili.com/video/BV1aTvieqEfw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-他的前半生
-他的前半生
-
-146
-https://www.bilibili.com/video/BV1dP4y1g7D4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-听歌合集
-听歌
-
-147
-https://www.bilibili.com/video/BV1aU411d7dW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-xin??ngnh?cmáy，越南神曲
-最近被这首越南神曲洗脑了，xin??ngnh?cmáy
-
-148
-https://www.bilibili.com/video/BV1Lm411R7sC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-dadada，俄罗斯神曲
-学习俄罗斯神曲第一天《dadada》
-
-149
-https://www.bilibili.com/video/BV1VRABehEzm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-丁咔
-丁咔
-
-150
-https://www.bilibili.com/video/BV1qp4y1t7DJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-海底
-凤凰传奇翻唱《海底》
-
-151
-https://www.bilibili.com/video/BV1JV411K7V3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-悬溺
-在百万豪装录音棚大声听 葛东琪《悬溺》Hi-res
-
-152
-https://www.bilibili.com/video/BV1N7PSeJEW8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-六耳
-六耳歌词排版，我地上疯天上闹，撞碎星辰知多少
-
-153
-https://www.bilibili.com/video/BV1YY4y127S6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-你就想摘我的果，你还想捻我的花
-你就想摘我的果 你还想捻我的花
-
-154
-https://www.bilibili.com/video/BV1NG411X7tp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-××の小曲-bgm
-××の小曲-bgm
-
-155
-https://www.bilibili.com/video/BV1L54y1E7yf/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-1983华语金曲榜TOP50
-"华语巅峰1983年华语乐坛金曲榜TOP50,《射雕英雄传》原声屠榜，《我的中国心》无悬念夺冠！"
-
-156
-https://www.bilibili.com/video/BV1ju41197xh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-2000-2009最强华语金曲
-十年榜2000-2009年最强华语金曲TOP100
-
-157
-https://www.bilibili.com/video/BV1mudzYvELh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-2025年破亿emo神曲
-2025年破亿emo神曲，每一首都收藏百万
-
-158
-https://www.bilibili.com/video/BV1wZG8zuETq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-2025上半年爆火の小曲
-盘点2025上半年爆火の小曲，很多人听过却不知道歌名
-
-159
-https://www.bilibili.com/video/BV1Am4y1w7HD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-20大直击灵魂的伤感纯音乐
-20大直击灵魂的伤感纯音乐，没有歌词也能瞬间泪崩，太emo了
-
-160
-https://www.bilibili.com/video/BV1VY411p7PJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-A零距离
-A零距离
-
-161
-https://www.bilibili.com/video/BV1bW411n7fY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-bilibili入站必刷，合集
-bilibili入站必刷
-
-162
-https://www.bilibili.com/video/BV12P411u7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-不骗中国人！B站。。。合集
-不骗中国人！B站。。。
-
-163
-https://www.bilibili.com/video/BV1HZKAepEie/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-串烧推荐合集
-串烧推荐
-
-164
-https://www.bilibili.com/video/BV12pnHzzE5a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-歌单大集合
-歌单大集合
-
-165
-https://www.bilibili.com/video/BV1KS411F7n3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-合集2
-合集2
-
-166
-https://www.bilibili.com/video/BV1L54y1E7yf/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-华语音乐排行榜大全
-华语音乐排行榜大全
-
-167
-https://www.bilibili.com/video/BV1t44yzoE8P/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-橘子不是青柠，酸酸甜甜
-橘子不是青柠，酸酸甜甜
-
-168
-https://www.bilibili.com/video/BV1jx9wYGEin/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-那些直击心灵的氛围音乐合集
-那些直击心灵的氛围音乐
-
-169
-https://www.bilibili.com/video/BV1vm411Z7ZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-网易云评神仙歌曲200首合集
-网易云评论10W+的神仙歌曲200首合集
-
-170
-https://www.bilibili.com/video/BV1Sr4y1h79z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-唯美合集
-唯美
-
-171
-https://www.bilibili.com/video/BV1Hv411z73N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-爷青回合集
-爷青回
-
-172
-https://www.bilibili.com/video/BV1RF411q7tA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-一生必听英文歌合集
-一生必听英文歌，适合单曲循环
-
-173
-https://www.bilibili.com/video/BV1N7PSeJEW8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-音乐分享
-音乐分享
-
-174
-https://www.bilibili.com/video/BV1WU4y1a7rb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-英文神级现场
-英文神级现场
-
-175
-https://www.bilibili.com/video/BV1971JYwEcV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-硬曲盲盒合集
-硬曲盲盒
-
-176
-https://www.bilibili.com/video/BV1bkNjz4E3f/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-这些歌小时候抱过我，合集
-这些歌小时候抱过我
-
-177
-https://www.bilibili.com/video/BV1VY411p7PJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-值得单曲循环的100首宝藏热歌合集
-戴上耳机原地起飞值得你单曲循环的100首宝藏热歌合集
-
-178
-https://www.bilibili.com/video/BV1sw411971F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-值得你单曲循环的100首宝藏热歌合集
-时长6小时36分值得你单曲循环的100首宝藏热歌合集！
-
-179
-https://www.bilibili.com/video/BV1QL411c7CY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Music Travel Love
-Music Travel Love音乐之旅
-
-180
-https://www.bilibili.com/video/BV1us41137Fd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Miume?MARiA?217舞见
-Miume?MARiA?217舞见
-
-181
-https://www.bilibili.com/video/BV19V411n7L3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-日语现场
-日语现场
-
-182
-https://www.bilibili.com/video/BV1bLuQziECM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-那些直击灵魂的英文歌合集
-那些直击灵魂的英文歌
-
-183
-https://www.bilibili.com/video/BV1Zp421D7zv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-外语歌曲合集
-外语歌曲
-
-184
-https://www.bilibili.com/video/BV1e4421S7m7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-中文推荐合集
-中文推荐]‘戴好耳机，准备听歌！
-
-185
-https://www.bilibili.com/video/BV1RF411q7tA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-As Long As You Love Me
-重温经典后街男孩《As Long As You Love Me》
-
-186
-https://www.bilibili.com/video/BV1VK411u7vy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-波西米亚狂想曲
-4K，皇后乐队Queen《波西米亚狂想曲》核能现场！
-
-187
-https://www.bilibili.com/video/BV1Hv411z73N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-曾经我也想过一了百了
-街头《曾经我也想过一了百了》但那只是曾经
-
-188
-https://www.bilibili.com/video/BV1EJ411v7cK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-what a wonderfull world
-感受一下世界级终极“烟嗓”，开口被震撼，一身鸡皮疙瘩
-
-189
-https://www.bilibili.com/video/BV12P411u7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Yellow
-22年前他花10分钟写的《Yellow》，我一听就是20年
-
-190
-https://www.bilibili.com/video/BV15f4y1p7Gq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-加州旅馆
-4K，老鹰乐队Eagles加州旅馆神级现场！
-
-191
-https://www.bilibili.com/video/BV12b4y147DE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Waiting for Love
-神经典电音之作，Waiting for Love，歌词温暖励志，激励有梦想的人
-
-192
-https://www.bilibili.com/video/BV14E411i7ar/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-起风了
-林俊杰，起风了，最燃高音版，极致蓝光收藏版
-
-193
-https://www.bilibili.com/video/BV1nV411E7RX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-一生所爱
-4K卢冠廷，一生所爱，神级现场！
-
-194
-https://www.bilibili.com/video/BV1cY41117NG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Lemon
-4K，米津玄师《Lemon》2019神级现场
-
-195
-https://www.bilibili.com/video/BV1bo4y1A7S9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-平凡之路
-朴树《平凡之路》经典神作！
-
-196
-https://www.bilibili.com/video/BV1vaEWzWEUr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-《我的父亲是瓦匠》日语版《私の父は屋根職人》
-改编庞麦郎《我的父亲是瓦匠》日语版《私の父は屋根職人》
-
-197
-https://www.bilibili.com/video/BV1KdSmYyEyY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Cry For Me
-我只为自己而哭泣，Cry For Me
-
-198
-https://www.bilibili.com/video/BV1yc4UzcEUT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-KILL MY LOVE
-听到人声的那一秒妩媚地夺走了我的心，KILL MY LOVE
-
-199
-https://www.bilibili.com/video/BV1PW411x7mC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-日本网红最强洗脑神曲，把女儿嫁给我吧
-传销现场，日本网红最强洗脑神曲《把女儿嫁给我吧
-
-200
-https://www.bilibili.com/video/BV1yc4UzcEUT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-今日宜开心，日语歌，合集
-今日宜开心，日语歌
-
-201
-https://www.bilibili.com/video/BV1t44yzoE8P/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-B?sta som h?nt
-好喜欢瑞典语这版，B?sta som h?nt
-
-202
-https://www.bilibili.com/video/BV1uT4y1P7CX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Never Gonna Give You Up，1987，经典
-经典老歌，瑞克•埃斯利《Never Gonna Give You Up》1987 AI修复
-
-203
-https://www.bilibili.com/video/BV19V411n7L3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-直到世界的尽头（灌篮高手）
-4K上杉升、织田哲郎《直到世界的尽头》核爆现场！《灌篮高手》片尾曲！
-
-204
-https://www.bilibili.com/video/BV1yV4y1t72u/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-白袍，国风
-白袍，国风说唱，假如赵云 诸葛亮 陈庆之 是rapper会怎么唱
-
-205
-https://www.bilibili.com/video/BV1uR4y1e79e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-成仙
-成仙-完整版
-
-206
-https://www.bilibili.com/video/BV1gAN9euEez/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-从来如此，便对么
-从来如此，便对么
-
-207
-https://www.bilibili.com/video/BV1694y1i7Q2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-丹阳子，道诡异仙同人曲
-丹阳子，道诡异仙同人曲， 听够了川味修仙那就来听听陕派修仙
-
-208
-https://www.bilibili.com/video/BV1uW411m7Y5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-佛说，喊麦
-佛说，这可能是最好听的一首喊麦歌曲了，燃到爆炸
-
-209
-https://www.bilibili.com/video/BV1La41197wZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-领导讲话
-领导讲话
-
-210
-https://www.bilibili.com/video/BV1eZqiY8EiP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-骂
-骂
-
-211
-https://www.bilibili.com/video/BV1Zs411b7ZL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-最强卖鞋哥，这双王八牌皮鞋，神曲
-最强卖鞋哥，这双王八牌皮鞋，我买定了
-
-212
-https://www.bilibili.com/video/BV1cK41117mP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-坐忘道，MV
-坐忘道，MV三花聚顶！羽化登仙！哈哈道爷我悟了
-
-213
-https://www.bilibili.com/video/BV1yV4y1t72u/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Ofo凌四歌曲字幕vj合集
-Ofo凌四歌曲字幕vj合集
-
-214
-https://www.bilibili.com/video/BV1Hi421a7yH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-往生咒
-黑神话：悟空，往生咒，在国外鲨疯了！赛博诵经让老外陷入疯狂
-
-215
-https://www.bilibili.com/video/BV1TVWjekE56/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-八方来财•因果
-八方来财•因果，揽佬SKAI ISYOUGOD.Official Music Video
-
-216
-https://www.bilibili.com/video/BV1bW411n7fY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-改革春风吹满地，鬼畜
-春晚鬼畜】赵本山：我就是念诗之王！【改革春风吹满地
-
-217
-https://www.bilibili.com/video/BV1fjt1zjErF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-等不到的等待（《长相思》ost）
-檀健次《等不到的等待（《长相思》ost）》百万豪装录音棚大声听
-
-218
-https://www.bilibili.com/video/BV1Ly4y1L7mA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-给我一首歌的时间，神曲
-原版来了，感谢大家的喜欢，这是我唯一的账号！
-
-219
-https://www.bilibili.com/video/BV1Tg411G7t1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-杀死那個石家庄人
-万青，杀死那個石家庄人
-
-220
-https://www.bilibili.com/video/BV1Kr4y1A7G7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-笑看风云
-“卧槽！音乐一响，多少人的青春回来了！”
-
-221
-https://www.bilibili.com/video/BV1CAqSYyEBK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-曾经我也想过一了百了
-曾经我也想过一了百了
-
-222
-https://www.bilibili.com/video/BV1H7411n7JM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-挪威的森林
-4K，伍佰《挪威的森林》神级现场！超级王炸代表作
-
-223
-https://www.bilibili.com/video/BV1vK4y1G7Bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-再度重相逢
-4K，伍佰《再度重相逢》神级现场！
-
-224
-https://www.bilibili.com/video/BV1vK4y1G7Bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-伍佰合集
-伍佰
-
-225
-https://www.bilibili.com/video/BV1WU4y1a7rb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-My Love
-4K西城Westlife《My Love》超感人现场！
-
-226
-https://www.bilibili.com/video/BV1PL411W7Dw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-曾经我也想过一了百了
-卧室硬核翻唱！曾经我也想过一了百了
-
-227
-https://www.bilibili.com/video/BV1oG4y1V75e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-20大直击灵魂的致郁神曲
-20大直击灵魂的致郁神曲，音乐一响瞬间沦陷！网友：我emo了
-
-228
-https://www.bilibili.com/video/BV1Na411J7Jh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-7 Years
-只要听10秒，保证你爱上这首歌《7 Years》
-
-229
-https://www.bilibili.com/video/BV1R84y1C7hH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Closer
-一入烟鬼深似海”—《Closer
-
-230
-https://www.bilibili.com/video/BV1Ks4y1d7gn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Empty Love
-写出了年轻人，虚度时光但又渴望爱”《Empty Love》
-
-231
-https://www.bilibili.com/video/BV1bG4y1H7Qg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Empty Love
-“一首会让你心情变好的英文歌。”—《Empty Love》
-
-232
-https://www.bilibili.com/video/BV1MR4y1P7T3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-In The Shadow Of The Sun
-《In The Shadow Of The Sun》这歌有种涅槃重生直冲云霄的感觉
-
-233
-https://www.bilibili.com/video/BV1cY4y1M7fL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-In The Shadow Of The Sun
-“这首歌有种让人灵魂升华的感觉！”——《In The Shadow Of The Sun》
-
-234
-https://www.bilibili.com/video/BV1MW4y1R7CR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Mr. Forgettable
-“请享受无法回避的孤独”《Mr. Forgettable》
-
-235
-https://www.bilibili.com/video/BV1Pt4y1L7XV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Normal No More，电音
-前方高能！电音女声《Normal No More》开口就惊艳
-
-236
-https://www.bilibili.com/video/BV18Z4y117p6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Past Lives
-一首忧伤至极的神曲《Past Lives》，开口沦陷，听完让人抑郁又释怀
-
-237
-https://www.bilibili.com/video/BV1wd4y1w7kK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Payphone
-一开口就好听《Payphone》这歌真听不腻
-
-238
-https://www.bilibili.com/video/BV1YW4y127to/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-So Far Away
-这首《So Far Away》高潮太过洗脑
-
-239
-https://www.bilibili.com/video/BV15F411t7br/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-The Way I Still Love You
-前奏秒杀的英文歌《The Way I Still Love You》
-
-240
-https://www.bilibili.com/video/BV11A411Y7sX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Tik Tok
-火爆全网《Tik Tok》
-
-241
-https://www.bilibili.com/video/BV18U4y1w7CX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Touch
-洗脑神曲《Touch》
-
-242
-https://www.bilibili.com/video/BV1vP4y1M7Mz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-???? ?????? ????????
-???? ?????? ????????
-
-243
-https://www.bilibili.com/video/BV1GJ411x7h7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Never Gonna Give You Up，MV
-"官方MV,Never Gonna Give You Up,Rick Astley"
-
-244
-https://www.bilibili.com/video/BV1MW4y1R7CR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-“乡村乐”轻松的私人小调合集
-“乡村乐”轻松的私人小调
-
-245
-https://www.bilibili.com/video/BV1vP4y1M7Mz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-AMV(2019.8 - 2022-5)合集
-AMV(2019.8 - 2022-5)
-
-246
-https://www.bilibili.com/video/BV1R84y1C7hH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-超好听的外语歌
-超好听的外语歌
-
-247
-https://www.bilibili.com/video/BV1cY4y1M7fL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-超好听的外语歌曲合集
-超好听的外语歌曲
-
-248
-https://www.bilibili.com/video/BV1oG4y1V75e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-催泪伤感致郁
-催泪伤感致郁
-
-249
-https://www.bilibili.com/video/BV1Ks4y1d7gn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-节奏感英文合集
-“节奏感”情绪碰撞释放压
-
-250
-https://www.bilibili.com/video/BV1YW4y127to/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-经典英文歌
-经典英文歌
-
-251
-https://www.bilibili.com/video/BV1Ax411d7jD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-coincidance
-每天一遍，网抑再见，万恶之源，抖就完事了
-
-252
-https://www.bilibili.com/video/BV1R34y1Q7J4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Ngana Rindu高级版
-Ngana Rindu高级版
-
-253
-https://www.bilibili.com/video/BV1NZ4y1j7nw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-黑人抬棺原版
-黑人抬棺原版视频
-
-254
-https://www.bilibili.com/video/BV1Mt4y1X718/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-She Taught Me How to Yodel
-约德尔满级大佬4k60帧算法重制版
-
-255
-https://www.bilibili.com/video/BV1gJ411H74f/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-别问我什么是迪斯科
-别问我什么是迪斯科
-
-256
-https://www.bilibili.com/video/BV1YV4y1K7pT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-我不要在失败孤独中死去
-我不要在失败孤独中死去
-
-257
-https://www.bilibili.com/video/BV1vm411Z7ZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-偏爱
-张芸京，偏爱
-
-258
-https://www.bilibili.com/video/BV1pE411Q7TQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-骑在银龙的背上
-日本国宝，中岛美雪，骑在银龙的背上
-
-259
-https://www.bilibili.com/video/BV1SA41157Nt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-暗号，演唱会
-4K，周杰伦，暗号，神级现场！The one演唱会live
-
-260
-https://www.bilibili.com/video/BV1St4y1p7Ee/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-反方向的钟，MV
-4K，周杰伦，反方向的钟，MV完整版
-
-261
-https://www.bilibili.com/video/BV1ar4y1C7zq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-可爱女人
-可爱女人，周杰伦
-
-262
-https://www.bilibili.com/video/BV1BB4y1j7fF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-龙拳
-周杰伦《龙拳》飞檐走壁现场！
-
-263
-https://www.bilibili.com/video/BV1qD4y1U7fs/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-七里香
-4K，周杰伦《七里香》封神之作！华语乐坛最美的一首歌
-
-264
-https://www.bilibili.com/video/BV1Ru411t7Aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-夜曲，演唱会
-4K60FPS，周杰伦《夜曲》地表最强演唱会
-
-265
-https://www.bilibili.com/video/BV1mD4y1U7z9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-一路向北
-4K，周杰伦，一路向北，万人大合唱现场！
-
-266
-https://www.bilibili.com/video/BV1Ru411t7Aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-周杰伦
-周杰伦
-
-267
-https://www.bilibili.com/video/BV1tJ41167Ai/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-周杰伦封神的十大神级金曲
-周杰伦封神的十大神级金曲（地表最强画质）
-
-268
-https://www.bilibili.com/video/BV1ar4y1C7zq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-周杰伦歌曲全集
-周杰伦歌曲全集超清
-
-269
-https://www.bilibili.com/video/BV1BB4y1j7fF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-周杰伦合集
-周杰伦
-
-270
-https://www.bilibili.com/video/BV1aE411n7wb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-囍
-祖娅纳惜，囍，这什么灵魂唢呐！！
-
-271
-https://www.bilibili.com/video/BV1J4411U7Df/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-子不语罗刹鸟
-祖娅纳惜•中元特供，子不语 • 罗刹鸟
-
-272
-https://space.bilibili.com/354656677003544
-揽佬SKAIISYOURGOD
-揽佬SKAIISYOURGOD
-
-273
-https://www.bilibili.com/video/BV1Xj411P7n1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Daylight
-“当你身处迷茫困境中，就让这首《Daylight》来治愈你吧”
-
-274
-https://www.bilibili.com/video/BV1T54y1S7yk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-黑人抬棺，民乐
-器乐，当民乐团演奏起了《黑人抬棺》
-
-275
-https://www.bilibili.com/video/BV1Zx411h7qU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-加州旅馆，丐版
-宿舍，加州旅馆，原先以为是搞笑的，看了直接跪拜了
-
-276
-https://www.bilibili.com/video/BV1PE411e7Dz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全球创下2.1亿播放量的神曲
-全球创下2.1亿播放量的神曲
-
-277
-https://www.bilibili.com/video/BV1fT4y137yU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-所念皆星河，星河中是你
-所念皆星河，星河中是你
-
-278
-https://www.bilibili.com/video/BV1os41197sv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-序曲
-"纯音音乐馆，它们不需要歌词,也可以打动你的心"
-
-279
-https://www.bilibili.com/video/BV1e4411o7pa/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-油管上亿播放量的神级演奏
-油管上亿播放量的神级演奏
-
-280
-https://www.bilibili.com/video/BV1d84y1S7eU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-浮光
-在百万豪装录音棚大声听 Jannik《浮光（The History）Hi-res
-
-281
-https://www.bilibili.com/video/BV19h411B7cr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-植物大战僵尸，人声
-僵尸即将抵达，人声演绎，植物大战僵尸，游戏声效，MayTree五月树
-
-282
-https://www.bilibili.com/video/BV1jY411d7qT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-坂本龙一
-坂本龙一
-
-283
-https://www.bilibili.com/video/BV1oK411q7mp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-圣诞快乐劳伦斯先生
-4K，Hi-Res，坂本龍一《圣诞快乐劳伦斯先生》
-
-284
-https://www.bilibili.com/video/BV1jY411d7qT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-圣诞快乐劳伦斯先生
-4k，坂本龙一《圣诞快乐劳伦斯先生》
-
-285
-https://www.bilibili.com/video/BV1vJ411k7UH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-菊次郎没挺过夏天，搞笑
-菊次郎没挺过夏天
-
-286
-https://www.bilibili.com/video/BV1TZ4y147i8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-菊次郎在苏联，即兴
-气突苏菊次郎在苏联（即兴）
-
-287
-https://www.bilibili.com/video/BV1L4411U7Fj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-世界上最治愈的钢琴曲，卡农
-世界上最治愈的钢琴曲卡农
-
-288
-https://www.bilibili.com/video/BV1Pv41147Mn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-苏维埃进行曲，街头
-街头”燃起“《苏维埃进行曲》，小女孩“精苏狂喜”
-
-289
-https://www.bilibili.com/video/BV1WE411D71o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-苏维埃进行曲，街头
-伦敦火车站即兴演奏《钢铁洪流进行曲》钢琴版
-
-290
-https://www.bilibili.com/video/BV1sT411P7qN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-未闻花名
-当音乐室有人弹《未闻花名
-
-291
-https://www.bilibili.com/video/BV1Sx411T7QQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-古筝千本樱，凶残的练习曲
-古筝千本樱——你可见过如此凶残的练习曲
-
-292
-https://www.bilibili.com/video/BV1PK411L7h5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-兰陵王入阵曲
-鼓乐《兰陵王入阵曲》耳机开最大！来听千军万马
-
-293
-https://www.bilibili.com/video/BV1os41197sv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-纯音音乐馆合集
-纯音音乐馆
-
-294
-https://www.bilibili.com/video/BV1HYreYCEQ8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-那些宿命感拉满的顶级纯音乐
-那些宿命感拉满的顶级纯音乐
-
-295
-https://www.bilibili.com/video/BV1MFvPzYEaw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-那些旋律封神的顶级纯音乐合集
-那些旋律封神的顶级纯音乐
-
-296
-https://www.bilibili.com/video/BV1RV4y1F7di/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-气突苏，合集
-气突苏
-
-297
-https://www.bilibili.com/video/BV1ef4y1P7xD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全网最火的七首万恶之源BGM
-终于找到了全网最火的七首万恶之源BGM，音乐一响全村吃席！
-
-298
-https://www.bilibili.com/video/BV1fjt1zjErF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-私人致享合集
-私人致享
-
-299
-https://www.bilibili.com/video/BV169VrzeExV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-循环歌单
-循环歌单
-
-300
-https://www.bilibili.com/video/BV1fT4y137yU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-治愈星空合集
-治愈星空
-
-301
-https://www.bilibili.com/video/BV1fs411S7u7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-墨韵随步摇，司鼓君
-筝鼓和鸣】权御天下 ——墨韵随步摇 司鼓君
-
-302
-https://www.bilibili.com/video/BV1Ha4y1C7Df/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-未闻太君名
-未闻太君名
-
-303
-https://www.bilibili.com/video/BV1RV4y1F7di/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-菊次郎在苏联交响史诗版
-气突苏菊次郎的苏联故事
-
-304
-https://www.bilibili.com/video/BV1PE411A7zt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-琵琶行
-绝了！原来白居易的《琵琶行》是真实存在的
-
-305
-https://www.bilibili.com/video/BV1vx411w7Hc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-十面埋伏，独奏，刘德海
-刘德海大师琵琶独奏《十面埋伏》
-
-306
-https://www.bilibili.com/video/BV1g7411x72W/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-菊次郎挺到了冬天
-菊次郎挺到了冬天
-
-307
-https://www.bilibili.com/video/BV1aMS7YNEWZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-全4000多集，英语启蒙动画片，1-9级别
-全套4000多集，B站最全的英语启蒙动画片，1-9级别4000多集， 涵盖视频音频电子书PDF全套资料！英语启蒙这一套动画就够啦！
-
-308
-https://www.bilibili.com/video/BV1uT411z7Xz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-【【学龄前最佳STEM英文动画】Ask the StoryBots问问故事小机器人1-3季22集内嵌英文字幕 story bots netflix】
-学龄前最佳STEM英文动画，Ask the StoryBots问问故事小机器人1-3季22集内嵌英文字幕 story bots netflix】
-
-309
-https://www.bilibili.com/video/BV1Xo4y1B7Z1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-120集，3-6岁英文绘本动画，【有配套PDF文本和教案】！火爆欧美的VOOKS绘本动画系列，与经典绘本配套的动画片！配乐一流、发音一流，绘本治愈大人和孩子！
-【【120集】3-6岁英文绘本动画，【有配套PDF文本和教案】！火爆欧美的VOOKS绘本动画系列，与经典绘本配套的动画片！配乐一流、发音一流，绘本治愈大人和孩子！】
-
-310
-https://www.bilibili.com/video/BV1GN411p791?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-趣谈各国国旗背后的历史，Fun With Flags短片53个+DK国旗百科全书
-趣谈各国国旗背后的历史  Fun With Flags短片53个+DK国旗百科全书
-
-311
-https://www.bilibili.com/video/BV1HV4y1v75o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-Crash Course Kids 104集
-104集，YouTube儿童英语科学教学动画短片《Crash Course Kids，每天10分钟快速掌握科普知识！】
-
-312
-https://www.bilibili.com/video/BV1U8411n7Mu?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK儿童百科Find Out
-DK儿童百科，不一样的英语科普，72集全，DK Find Out，精品科普
-
-313
-https://www.bilibili.com/video/BV1Zu411c75Z?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-财商绘本Money bunny
-孩子必读的经典财商绘本Money bunny不仅获得财商的培养，还能学习地道的英文
-
-314
-https://www.bilibili.com/video/BV12F411z7rD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-60集英文，超精致的绘本动画
-【【60集英文】超精致的绘本动画】
-
-315
-https://www.bilibili.com/video/BV1PD4y147W9?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-英语情商社交儿童启蒙绘本Pip and Posy油管动画同步更新中【英文字幕】
-【英语情商社交儿童启蒙绘本Pip and Posy油管动画同步更新中【英文字幕】
-
-316
-https://www.bilibili.com/video/BV1EK4y1a71Y?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK茶的百科
-DK茶的百科
-
-317
-https://www.bilibili.com/video/BV1cg4y1W7M7?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK，findout，31册绘本+科普视频动画72集
-百科全书，DK里程碑级的革新力作！《DK findout》31册绘本+科普视频动画72集
-
-318
-https://www.bilibili.com/video/BV1w6421c7xu?vd_source=67a5fbe3a1f6f892e5a9c0536157070
-DK，Findout，百科系列
-DK，Findout，百科系列视频全集+31本PDF
-
-319
-https://www.bilibili.com/video/BV1xnqzYpER8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-黑神话：悟空，相关
-黑神话：悟空，相关
-
-320
-https://www.bilibili.com/video/BV1ptngzqEnB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-北京大学，语言学概论，国家级精品课程，思想的边界时语言
-北京大学，语言学概论，国家级精品课程，思想的边界时语言
-
-321
-https://www.bilibili.com/video/BV1Ss411f7zq/?share_source=copy_we
-选择背后的惊人秘密，我们是否真正主宰自己的决定
-选择背后的惊人秘密，我们是否真正主宰自己的决定?
-
-322
-https://space.bilibili.com/31341757/lists
-B站UP主，DngGentle，社会问题讨论
-DngGentle，社会问题讨论
-
-323
-https://space.bilibili.com/3546574294616231?spm_id_from=333.788.upinfo.head.clic
-B站UP主，杰哥观察者模式启动中，社会问题讨论
-杰哥观察者模式启动中，社会问题讨论
-
-324
-https://www.bilibili.com/video/BV1mU4y1f7kq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-植物分类学
-植物分类学
-
-325
-https://www.bilibili.com/video/BV1DN411j7U3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-植物分类与系统发育，蕨妙内卷
-植物分类与系统发育SZ01 蕨妙内卷——石松类与真蕨类概述（1）：蕨类的叶片
-
-326
-https://www.bilibili.com/video/BV1mU4y1f7kq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070
-植物分类与系统发育，课前唠嗑
-植物分类与系统发育01 课前唠嗑 ＋ 植物登陆与世代交替】
-
-
-
-
+| 链接地址                                                     | 精简标题                                                     | 标题                                                         | 关键字                                                       |
+| ------------------------------------------------------------ | ------------------------------------------------------------ | ------------------------------------------------------------ | ------------------------------------------------------------ |
+| https://space.bilibili.com/393245497?spm_id_from=333.788.upinfo.head.clic | 柴来了，B站UP                                                | 柴来了                                                       | B站UP，动画                                                  |
+| https://space.bilibili.com/395877542?spm_id_from=333.788.upinfo.head.clic | 不刷题的吴姥姥，B站UP                                        | 不刷题的吴姥姥                                               | B站UP，科普                                                  |
+| https://space.bilibili.com/1263732318?spm_id_from=333.788.upinfo.head.click | B站UP主，黑纹白斑马，思想提升                                | 黑纹白斑马，思想提升                                         | B站UP，思想提升                                              |
+| https://www.bilibili.com/video/BV1ak4y1K7bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 没脸鉴车合集                                                 | 安全，驾驶，合集                                             |
+| https://www.bilibili.com/video/BV184421S7wk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 出行又平安                                                   | 安全，驾驶，合集                                             |
+| https://www.bilibili.com/video/BV19t421E7iH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 意外失误（很疼系列）                                         | 安全，意外，合集                                             |
+| https://www.bilibili.com/video/BV1Wppce4ELu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 安全事故合集                                                 | 安全，意外，合集                                             |
+| https://www.bilibili.com/video/BV1JP411Z7h5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【【英文版+中文版+PDF漫画+练习册】巴菲特的神秘百万俱乐部  巴菲特教你财商!巴菲特亲自出版，比尔盖茨配音的财商教育动画片和配套绘本 外挂字墓】 | 财商，英语，课程，儿童，巴菲特的神秘百万俱乐部               |
+| https://www.bilibili.com/video/BV1vb411h7Z4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【大气探测学【北京大学】】                                   | 地理，课程，北京大学，刘树华，大气探测学                     |
+| https://www.bilibili.com/video/BV1sXpjzhEC3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | X档案，电影版，国语配音                                      | 【X档案 电影版【国语配音】】                                 | 电影，X档案（国语配音）                                      |
+| https://www.bilibili.com/video/BV1hz4CzfE6n/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 奥地利荒诞喜剧神作《孔雀:我是真的吗？》                      | 奥地利年度最精巧诡异的荒诞喜剧神作《孔雀:我是真的吗？》戛纳国际影评人周奖提名作品 | 电影，奥地利，喜剧                                           |
+| https://www.bilibili.com/video/BV1uW4yzfEeL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 战争猛兽2025                                                 | 2025澳大利亚惊悚战争猛兽                                     | 电影，澳大利亚，惊悚                                         |
+| https://www.bilibili.com/video/BV1HcZEYMEKb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 僧侣和枪2023                                                 | 僧侣和枪（2023，不丹）                                       | 电影，不丹                                                   |
+| https://www.bilibili.com/video/BV1fY7GzFEsC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 东南亚动作片，合集                                           | 东南亚动作片                                                 | 电影，东南亚，动作，合集                                     |
+| https://www.bilibili.com/video/BV13mnhz5EM8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 电影合集                                                     | 电影合集                                                     | 电影，动画，合集                                             |
+| https://www.bilibili.com/video/BV1U4xLzgE6j/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 欢迎来到臭臭镇                                               | 中字《欢迎来到臭臭镇                                         | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1BKxfzCEw9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 变身特工                                                     | 变身特工中英双语字幕                                         | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV15gxizkEqJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 月球漫步                                                     | 中字《月球漫步                                               | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1sMx2z9Evz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 糕点铺精灵2                                                  | 全网首发《糕点铺精灵2》                                      | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1JYsAzREzP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 怪物家族2：人无完人                                          | 中字《怪物家族2：人无完人》                                  | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV18PWizfEbe/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 皱纹2011                                                     | 《皱纹》(2011)                                               | 电影，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1nuxMzzENF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 海边的异邦人，日漫                                           | 海边的异邦人，日漫（高清全集无删减                           | 电影，动画，日本                                             |
+| https://www.bilibili.com/video/BV13mnhz5EM8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 笨鸟大冒险，国语                                             | 《笨鸟大冒险》国语                                           | 电影，动画，日本                                             |
+| https://www.bilibili.com/video/BV1jNY1zpEKt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 神笔马良                                                     | 《神笔马良》 超清中字 完整版                                 | 电影，动画，中国                                             |
+| https://www.bilibili.com/video/BV1pGR6YbEig/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 解放1：炮火弧线                                              | 解放1炮火弧线》4K超清修复无删减完整版                        | 电影，俄国                                                   |
+| https://www.bilibili.com/video/BV1pGR6YbEig/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏联战争系列，电影合集                                       | 苏联战争系列                                                 | 电影，俄国，合集                                             |
+| https://www.bilibili.com/video/BV1KZoLYzEQ9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 莫斯科保卫战2                                                | 莫斯科保卫战2》4K超清修复无删减完整版                        | 电影，俄国，战争                                             |
+| https://www.bilibili.com/video/BV1ieW4z7ERG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 法国冠军喜剧，无物申报，超清中字                             | 法国票房冠军喜剧《无物申报》超清中字                         | 电影，法国，喜剧                                             |
+| https://www.bilibili.com/video/BV1GiWezFEP9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爱的火花2000，E4-7                                           | 火花（爱的火花）1080P  4-7(2000)李英爱/车仁表/李璟荣         | 电影，韩语                                                   |
+| https://www.bilibili.com/video/BV1CT4zzNEZv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爱的火花2000，E1-3                                           | 火花（爱的火花）1080P  1-3(2000)李英爱/车仁表/李璟荣         | 电影，韩语                                                   |
+| https://www.bilibili.com/video/BV1vEWtz7EAq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爱的火花2000，E8-10                                          | 火花（爱的火花）1080P  8-10(2000)李英爱/车仁表/李璟荣        | 电影，韩语                                                   |
+| https://www.bilibili.com/video/BV1uW4yzfEeL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 真清晰系列全球热播，电影合集                                 | 真清晰系列全球热播                                           | 电影，合集                                                   |
+| https://www.bilibili.com/video/BV1do5ezGEDA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2025新片合集，电影合集                                       | 2025新片合集                                                 | 电影，合集                                                   |
+| https://www.bilibili.com/video/BV1ND421N72N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 老电影，合集                                                 | 老电影                                                       | 电影，合集                                                   |
+| https://www.bilibili.com/video/BV1EDWqz7EWL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爽片合集                                                     | 爽片合集                                                     | 电影，合集                                                   |
+| https://www.bilibili.com/video/BV1UXoPYGEsj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 4K修复经典港片，合集                                         | 4K修复经典港片                                               | 电影，合集                                                   |
+| https://www.bilibili.com/video/BV1K6TszmEWb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 乳汁2023                                                     | 乳汁（2023）荷兰 斯蒂芬妮·科尔克                             | 电影，荷兰                                                   |
+| https://www.bilibili.com/video/BV1NLeVzJEN2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纪录片之家，合集                                             | 纪录片之家                                                   | 电影，纪录片，合集                                           |
+| https://www.bilibili.com/video/BV1LyJSzNEX3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 40英亩2025                                                   | 2025加拿大末日40英亩                                         | 电影，加拿大，末日                                           |
+| https://www.bilibili.com/video/BV17umRYGEpF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 超英电影，解说                                               | 超英电影                                                     | 电影，解说，合集                                             |
+| https://www.bilibili.com/video/BV1CP42znEaG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | CCTV6《100佳片有约：精华版电影手册》                         | CCTV6 电影频道  书籍《100佳片有约：精华版电影手册》赠送VCD视频 | 电影，介绍                                                   |
+| https://www.bilibili.com/video/BV1Z74qzSEnH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 七海游侠破谍网1969                                           | 经典译制片：七海游侠破谍网 (1969)                            | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV146VnzXEwh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 吹牛伯爵历险记1962                                           | 吹牛伯爵历险记（1962）                                       | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1K8JkzaEup/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 异形2025：地球陷落                                           | 《异形2025：地球陷落》4K超清首发！外星生物全面入侵🌍          | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1KupNzwECD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 科幻片，沙丘3：弥赛亚                                        | 科幻片《沙丘3：弥赛亚》蓝光                                  | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1fkLizWECK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 雷神4：爱与雷霆                                              | 雷神4：爱与雷霆4K超清完整版                                  | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1do5ezGEDA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 孤寂午后2024                                                 | 孤寂午后（2024）阿尔伯特·塞拉                                | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1FKLQzNEKv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 凤宫劫美录1967                                               | 凤宫劫美录 (1967) Camelot                                    | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV17M4y1W7UR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 封面女郎1944，Cover Girl                                     | 封面女郎 Cover Girl  (1944)                                  | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1ND421N72N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 金童1939，Golden Boy                                         | 金童 Golden Boy (1939)                                       | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1wK42147ps/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 地狱圣女1945，The Wicked  Lady                               | 地狱圣女 The Wicked Lady  (1945)                             | 电影，欧美                                                   |
+| https://www.bilibili.com/video/BV1MrWFzZED5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 三日刺杀                                                     | 吕克贝松导演 \|  魅惑妖精海后主演暴爽动作大片《三日刺杀》超清蓝光 中英双字精译版 | 电影，欧美，动作                                             |
+| https://www.bilibili.com/video/BV1dUnczcEwJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 特工敢死队2025                                               | 2025新片 \|  动作谍战《特工敢死队》超清中英双字              | 电影，欧美，动作，谍战                                       |
+| https://www.bilibili.com/video/BV1PJsczdEzY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 战地哨所                                                     | 《战地哨所》动作/冒险  完整电影   获奖德国二战剧情片         | 电影，欧美，动作，冒险，剧情                                 |
+| https://www.bilibili.com/video/BV1dUnczcEwJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 好片放映厅，电影合集                                         | 好片放映厅                                                   | 电影，欧美，合集                                             |
+| https://www.bilibili.com/video/BV1rj4uz2EEd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 生而贫穷，Born Poor                                          | 中英字幕生而贫穷 Born Poor  (full documentary) ｜ FRONTLINE  | 电影，欧美，纪录                                             |
+| https://www.bilibili.com/video/BV1GBJRzyEr6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 人类消失后的世界                                             | Reaction纪录片《人类消失后的世界》中文字幕完整版<音量画质增强版> | 电影，欧美，纪录片                                           |
+| https://www.bilibili.com/video/BV1NLeVzJEN2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 隐秘的印度                                                   | 纪录片《隐秘的印度》中文字幕完整版<音量画质增强版>           | 电影，欧美，纪录片                                           |
+| https://www.bilibili.com/video/BV1zGnuzZEye/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 刑事物语，片山刑警在海岛1984                                 | 上译经典电影：刑事物语-片山刑警在海岛  (1984)                | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1q44XzfEZE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 八犬传2024                                                   | 八犬传(八犬伝).2024.役所广司 /  内野圣阳 / 土屋太凤          | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1hWaFzUE9o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 你和我一样不正常2021                                         | 成田凌&清原果耶丨你和我一样不正常(まともじゃないのは君も一緒).2021 | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1ULaUzEENk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 经典日剧，杯子蛋糕                                           | 经典--杯子蛋糕】日剧（全集）                                 | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1vHxhzfEju/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 吟公主                                                       | 电影《吟公主》中文配音版全集#吟公主#中文配音#西安配音者联盟出品 | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1pDWEzeEFR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 银魂1真人版                                                  | [银魂]1 真人版                                               | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1V1xXzXE8s/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 碧蓝之海真人版                                               | 碧蓝之海：真人版                                             | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1pvxszdE1D/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 鬼栖寺1969                                                   | 鬼栖寺[1969]中字                                             | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1vAJVz4EcX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 大江山酒天童子1960                                           | 大江山酒天童子[1960]自翻中字                                 | 电影，日本                                                   |
+| https://www.bilibili.com/video/BV1TWHuz5ERD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 武士侦探鬼平：无法无天的爱                                   | [高清] 武士侦探鬼平：《无法无天的爱  》武士忍者 动作日本电影 | 电影，日本，动作                                             |
+| https://www.bilibili.com/video/BV13hpZzoEeg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | BLACKFOX                                                     | 史诗级女忍者动作片 -  BLACKFOX（完整版电影）                 | 电影，日本，动作                                             |
+| https://www.bilibili.com/video/BV1hWaFzUE9o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日本电影，合集                                               | 日本电影                                                     | 电影，日本，合集                                             |
+| https://www.bilibili.com/video/BV1V1xXzXE8s/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 漫改电影，合集                                               | 漫改电影                                                     | 电影，日本，合集                                             |
+| https://www.bilibili.com/video/BV1fY7GzFEsC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 怒火凤凰，泰国动作                                           | 怒火凤凰，超清修复泰国经典动作片(泰语中字)                   | 电影，泰国，动作                                             |
+| https://www.bilibili.com/video/BV1oHWnzwE2q/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 双猴记，泰国动作                                             | 4K超清《双猴记》泰国超然硬核动作片(泰语中字                  | 电影，泰国，动作                                             |
+| https://www.bilibili.com/video/BV1e3xszGEzW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 仲夏夜惊魂2019导剪版                                         | 仲夏夜惊魂（导剪171分钟版/2019）                             | 电影，英语                                                   |
+| https://www.bilibili.com/video/BV1P8KgzNEBn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 福星闯江湖                                                   | 4K超清修复，福星闯江湖，国语未删减                           | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1kCJHzwEjr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 皇家飞凤                                                     | 4K超清修复，皇家飞凤，国语完整版未删减                       | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1MVLFzBEmx/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 人吓鬼                                                       | 人x鬼                                                        | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1q4WpziEfB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 地狱无门，超清修复版                                         | 地狱无门）超清修复版                                         | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1qKbCzuE5H/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑太阳731，超清修复版                                        | 黑太阳731）超清修复版                                        | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV13yHAziEXj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 关于我和鬼变成家人的那件事，Marry  My Dead Body，台剧        | 关于我和鬼变成家人的那件事Marry My  Dead Body】台剧（4k无删减） | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1gVLFzBEaT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 新龙门客栈                                                   | 新龙门客栈》4K（国语）超清修复无删减完整版                   | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1UXoPYGEsj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 新天龙八部之天山童姥                                         | 新天龙八部之天山童姥》4K超清修复无删减完整版                 | 电影，中国                                                   |
+| https://www.bilibili.com/video/BV1kCJHzwEjr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 4K超清修复老电影，合集                                       | 4K超清修复老电影                                             | 电影，中国，合集                                             |
+| https://www.bilibili.com/video/BV1MVLFzBEmx/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 经典合集，电影                                               | 经典合集                                                     | 电影，中国，合集                                             |
+| https://www.bilibili.com/video/BV1qKbCzuE5H/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 经典合集，电影                                               | 经典合集                                                     | 电影，中国，合集                                             |
+| https://www.bilibili.com/video/BV1MuW4zvEkW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 笑八仙，超清修复版                                           | 笑b仙，超清修复版                                            | 电影，中国，喜剧                                             |
+| https://www.bilibili.com/video/BV1t44y1s78q/?share_source=copy_we |                                                              | 【【北京大学】电路分析原理（2009）】                         | 电子，课程，北京大学，胡薇薇，电路分析原理2009               |
+| https://pan.quark.cn/s/dfb4ea5f99e4】  https://www.bilibili.com/video/BV1DyYNzYEpS/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 非线性科学丛书30本                                           | 非线性科学丛书30本                                           | 电子书                                                       |
+| https://pan.quark.cn/s/dfb4ea5f99e4】  https://www.bilibili.com/video/BV1DyYNzYEpS/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 数学物理等                                                   | 数学物理等                                                   | 电子书，合集                                                 |
+| https://www.bilibili.com/video/BV1gVe7zTE49/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 没眼力见的石头，韩漫                                         | 没--眼力见的--石头/柱子】韩漫（全集                          | 动画，韩国                                                   |
+| https://www.bilibili.com/video/BV1gVe7zTE49/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 必看动漫，合集                                               | 必看动漫                                                     | 动画，合集                                                   |
+| https://www.bilibili.com/video/BV1LVKUz8EZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Arthur  亚瑟小子，英文版动画片全1-25季                       | 【《Arthur  亚瑟小子》英文版动画片全1-25季音视频台词文本】   | 动画，英文，Arthur亚瑟小子（S1-25）                          |
+| https://www.bilibili.com/video/BV1Pu4y1a7iC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全3季78集，风靡全球50年的大红狗《Clifford  big red dog》 新版 | 【【全3季78集】风靡全球50年的大红狗《Clifford  big red dog》 新版高清动画片】 | 动画，英文，大红狗（S1-3 78集）                              |
+| https://www.bilibili.com/video/BV1c84y1a7YD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 39集全，哆啦A梦英文版                                        | 【【39集全】哆啦A梦英文版】                                  | 动画，英文，哆啦A梦（39集全）                                |
+| https://www.bilibili.com/video/BV1BW4y1E7Qm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 动画/短片                                                    | 动画，哲学，合集                                             |
+| https://www.bilibili.com/video/BV1bE41147AV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 我是中国军人，油管，宣传片                                   | YouTube上亿播放量的宣传片：我是中国军人                      | 短片                                                         |
+| https://www.bilibili.com/video/BV1GJ411v7aP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日共宣传片                                                   | 日共宣传片震撼我妈日本共产党                                 | 短片，日语                                                   |
+| https://www.bilibili.com/video/BV1ub411K7zk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学公开课系列006，法律实证研究，白建军                  | 【北京大学公开课系列006: 法律实证研究  白建军】              | 法学，课程，北京大学，法律实证研究                           |
+| https://www.bilibili.com/video/BV1ks411F7aC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，金融犯罪学，白建军，全21讲                         | 财经，北京大学，金融犯罪学，白建军，全21讲                   | 法学，课程，北京大学，金融犯罪学                             |
+| https://www.bilibili.com/video/BV1Ms411y7vG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【北京大学公开课：法理学】                                   | 法学，课程，北京大学，朱苏力，法理学                         |
+| https://www.bilibili.com/video/BV11J411M73k/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 比尔·盖茨：虽然我从哈佛退学了，但我当时是可以随时回去的      | 鸡汤都是骗人的！比尔·盖茨：虽然我从哈佛退学了，但我当时是可以随时回去的 | 访谈，英语，比尔·盖茨                                        |
+| https://www.bilibili.com/video/BV1k7411M76A/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，于希贤，风水学概论                                 | 北京大学风水学概论                                           | 风水，课程，北京大学，风水学概论                             |
+| https://www.bilibili.com/video/BV1ocKHzXEeu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 国学，堪舆学，风水地理，基础入门知识（全集）                 | 国学，堪舆学，风水地理，基础入门知识（全集）                 | 风水，课程，堪舆学，风水地理                                 |
+| https://www.bilibili.com/video/BV1sM7BzVEAA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 倪海厦，堪舆学32集                                           | 倪海厦，堪舆学，32集，完整课程，适合自学                     | 风水，课程，堪舆学，收费                                     |
+| https://www.bilibili.com/video/BV1S7411L784/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，罗炜，会计学基础（完结）                           | 北京大学，公开课，会计学基础（完结）                         | 管理，课程，北京大学，会计学基础                             |
+| https://www.bilibili.com/video/BV1KAMyzBEpr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 上海电影译制片厂大全集（第二部）                             | 上海电影译制片厂大全集（第二部）                             | 广播，剧集，合集                                             |
+| https://www.bilibili.com/video/BV1KAMyzBEpr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 非凡的艾玛                                                   | 非凡的艾玛                                                   | 广播，剧集，合集                                             |
+| https://www.bilibili.com/video/BV1iKu9znEJ7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 绘画针对性训练，合集                                         | 绘画针对性训练                                               | 绘画，教程，合集                                             |
+| https://www.bilibili.com/video/BV1xknFzjEvk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 席德米德，明暗对比技巧                                       | 席德·米德的“明暗对比技巧                                     | 绘画，教程，技巧                                             |
+| https://www.bilibili.com/video/BV1iKu9znEJ7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 躯干解剖课，绘画                                             | 躯干解剖课+绘画                                              | 绘画，教程，技巧                                             |
+| https://www.bilibili.com/video/BV1GvHJz2EK3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 绘画基础的高级用法                                           | 绘画基础的高级用法 - Devin  Korwin - 创作思维                | 绘画，课程                                                   |
+| https://www.bilibili.com/video/BV1QungzUECW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 经典概念设计核心基础课程                                     | 经典概念设计核心基础课程 John  Park & James Paick            | 绘画，课程                                                   |
+| https://www.bilibili.com/video/BV1GvHJz2EK3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 奠基计划，绘画，合集                                         | 奠基计划                                                     | 绘画，课程，合集                                             |
+| https://www.bilibili.com/video/BV1s2nFzCEJg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 绘画透视法，马歇尔范德鲁夫课程                               | 绘画透视法——马歇尔·范德鲁夫课程                              | 绘画，课程，技巧                                             |
+| https://www.bilibili.com/video/BV1eY411h76s/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 清华教授96小时Python课程800集完                              | 清华教授用96小时讲完的Python！完整版800集。拿走不谢，学不会我退出IT界！ | 计算机，编程，Python                                         |
+| https://www.bilibili.com/video/BV1ex411x7Em/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑马程序员600集Python从入门到精通教程                        | 黑马程序员Python教程_600集Python从入门到精通教程（懂中文就能学会） | 计算机，编程，Python                                         |
+| https://www.bilibili.com/video/BV1Hb411c7oH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 教程，手把手Python搭建区块链                                 | 教程向]手把手Python搭建区块链                                | 计算机，编程，Python，案例                                   |
+| https://www.bilibili.com/video/BV15d4y187ET/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Python区块链开发实战                                         | 经典Python语言区块链开发实战                                 | 计算机，编程，Python，案例                                   |
+| https://www.bilibili.com/video/BV1e7411w7SK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管，python编写即时通讯系统（part  1）                      | 油管搬运在线直播使用python编写即时通讯系统（part  1）        | 计算机，编程，Python，案例                                   |
+| https://www.bilibili.com/video/BV18dngz7EVo/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2025，102个Python实战项目                                    | 2025最新102个Python实战项目，练完即可就业，从入门到进阶，基础到框架，你想要的全都有，建议码住！ | 计算机，编程，Python，案例                                   |
+| https://www.bilibili.com/video/BV17CvSenE5x/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 从0开始一步步实现一个图形界面游戏                            | 学了C语言还只会写黑窗口？带你从0开始一步步实现一个图形界面游戏！（附源码+讲解）】 | 计算机，编程，课程，C语言                                    |
+| https://www.bilibili.com/video/BV1Yt411N785/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Python语言程序设计（上）                                     | Python语言程序设计（上）                                     | 计算机，编程，课程，Python                                   |
+| https://www.bilibili.com/video/BV16t411N73Z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Python语言程序设计（下）                                     | Python语言程序设计（下）                                     | 计算机，编程，课程，Python                                   |
+| https://www.bilibili.com/video/BV1C7agzYEFk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Python全套教学视频                                           | 全586集，Python全套教学视频，从0基础小白到自由产粮看这套就够了】 | 计算机，编程，课程，Python                                   |
+| https://www.bilibili.com/video/BV13Fe3zQEKJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 0基础小白快速进阶黑客大佬                                    | 全108集，可能是B站最好的黑客教学，手把手教学，通俗易懂！0基础小白快速进阶黑客大佬 | 计算机，黑客，课程                                           |
+| https://www.bilibili.com/video/BV1gW41197Yc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，阎宏飞，计算概论                                   | 北大，计算概论                                               | 计算机，课程，北京大学，计算概论                             |
+| https://www.bilibili.com/video/BV1a5411s7mM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，德稻，计算机概论，C语言，100讲                     | 公开课，北京大学，计算机概论，C语言，100讲                   | 计算机，课程，北京大学，计算概论                             |
+| https://www.bilibili.com/video/BV1eA411b7ey/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 计算概论与程序设计基础，北京大学，李戈                       | 计算概论与程序设计基础，北京大学，李戈                       | 计算机，课程，北京大学，计算概论与程序设计基础               |
+| https://space.bilibili.com/1010097026?spm_id_from=333.788.upinfo.head.click | 7天快速入门机器学习                                          | 黑马程序员人工智能课程，7天快速入门机器学习                  | 计算机，人工智能，机器学习                                   |
+| https://www.bilibili.com/video/BV1Pu4tzNEjQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Houdini科幻护盾激光火花爆炸烟雾制作教程                      | Ai精译  Houdini科幻护盾激光火花爆炸烟雾制作教程 SideFX - FFF Houdini Subject 071 | 计算机，软件，Houdini，教程                                  |
+| https://www.bilibili.com/video/BV1oi4izmEkH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2025MATLAB入门到进阶教程                                     | 2025最推荐学习的MATLAB入门到进阶教程！从安装到项目应用手把手教学，听懂人话就能学会 | 计算机，软件，MATLAB                                         |
+| https://www.bilibili.com/video/BV1yTWnzrEQm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 电影拍摄与后期pr＋ae剪辑技能与技巧                           | 全网中文字幕油管大神Sam  Kolder电影拍摄与后期，pr＋ae剪辑速度的技能与技巧 | 计算机，软件，PR，AE                                         |
+| https://www.bilibili.com/video/BV1E1JQzGEtC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Substance大师班                                              | Substance大师班                                              | 计算机，软件，Substance                                      |
+| https://www.bilibili.com/video/BV1xR41z4EoE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Substance  Painter入门到高级教程                             | Substance  Painter入门到高级教程                             | 计算机，软件，Substance  Painter，教程                       |
+| https://www.bilibili.com/video/BV19E411Y7Kw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TensorFlow 2.0深度学习入门                                   | TensorFlow  2.0深度学习入门-中文书                           | 计算机，软件，课程，TensorFlow2.0                            |
+| https://www.bilibili.com/video/BV1j9edzWEPc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全198集，UG建模保姆级教程，清华大佬198小时内部培训教程，B站最用心的UG零基础系统教程，7天掌握建模 | 【【全198集】UG建模保姆级教程 \|  清华大佬198小时讲完的UG建模内部培训教程 \| 全程干货无废话 \| B站最用心的UG零基础系统教程 \| 7天掌握建模！】 | 计算机，软件，课程，UG建模保姆级教程（全198集）              |
+| https://www.bilibili.com/video/BV1qDWvzBEer/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纽约大学深度学习入门课程pytorch                              | 图灵奖得主亲授，纽约大学深度学习入门课程（pytorch）—附配套课件 | 计算机，软件，深度学习                                       |
+| https://www.bilibili.com/video/BV1otxxzJEab/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 使用晶体管构造计算机                                         | 使用晶体管(verilog)构造计算机                                | 计算机，原理                                                 |
+| https://www.bilibili.com/bangumi/play/ep121248/?share_source=copy_we | 911： 改变世界的一天                                         | 911： 改变世界的一天                                         | 纪录片，事件                                                 |
+| https://www.bilibili.com/video/BV1tK4y1r7SA?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Discovery生活科技大解密S1-8                                  | 纪录片，Discovery，生活科技大解密（1-8季）[英语中字]         | 纪录片，英语，Discovery，生活科技                            |
+| https://www.bilibili.com/video/BV1Rx411L7ox/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 货币银行学，北京大学，国家发展研究院，黄益平                 | 货币银行学，北京大学国家发展研究院，黄益平主讲               | 经济，课程，北京大学，货币银行学                             |
+| https://www.bilibili.com/video/BV1A5411H7cN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，货币银行学，黄益平（全24讲）                       | 公开课，北京大学，货币银行学，黄益平，全24讲                 | 经济，课程，北京大学，货币银行学                             |
+| https://www.bilibili.com/video/BV1HRnFzMEMS/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 游戏经济数值策划，货币体系与交易系统                         | 游戏经济数值策划（货币体系与交易系统）                       | 经济，课程，游戏                                             |
+| https://www.bilibili.com/video/BV1TuP1euEGR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美漫及相关，合集                                             | 美漫及相关                                                   | 剧集，动画，合集                                             |
+| https://www.bilibili.com/video/BV1ii4y1r71e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 《柴来了》番外篇，动画合集                                   | 《柴来了》番外篇                                             | 剧集，动画，合集                                             |
+| https://www.bilibili.com/video/BV1vEWqzuEaD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S4，月下狂想曲                                         | 恶魔城 第四季 Castlevania  Season 4                          | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1qMG6zpEhj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S1，月下狂想曲                                         | 恶魔城~第一季                                                | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1ReVVzCEAy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S2，月下狂想曲                                         | 第二季                                                       | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1ysGoz1EPq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S3，月下狂想曲                                         | 第三季                                                       | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1KxERzfERP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S2-4，月下狂想曲                                       | 月下狂想曲  Castlevania（第二季-第四季）                     | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1C6VNzqEuN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 恶魔城S4，月下狂想曲                                         | 第四季                                                       | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1GQ4bzsE5Z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 探险活宝全9季                                                | 探险活宝全9季                                                | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1QYWnz9EZC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 太空终界，全三季全36集                                       | 太空终界 全三季全36集  超清中字（甜饼字幕组                  | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1TuP1euEGR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美漫，谋杀的艺术                                             | 美漫/熟肉《谋杀的艺术》试播集(1080P/无删减)                  | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1HzHCzwEo5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 希尔达，全三季                                               | 希尔达（全三季）                                             | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV11ZGnz7EAv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 午夜福音，全8集                                              | 午夜福音（探险活宝主创/全8集）                               | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1WpxEz6EXC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爆炸猫，2024，全一季）                                       | 爆炸猫（2024/全一季）                                        | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1nw8bzzEBF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 小黄人一家第一季                                             | 小黄人一家第一季                                             | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1ms411m7Zz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美番，Camp Lakebottom第一季                                  | 美番Camp  Lakebottom 第一季生肉720P                          | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1JUbszZEWd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | BBC小学，中学生驯龙系列动画片-《Dragons:  The Nine Realms》全2季共52集 | BBC小学+中学生驯龙系列动画片-《Dragons:  The Nine Realms》全2季共52集，高清英字+音频 | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV1pwxMz5EZB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 零工杰克，odd job jackS2-4                                   | 零工杰克 (odd job jack) （二至四季，无字幕）                 | 剧集，动画，欧美                                             |
+| https://www.bilibili.com/video/BV11ZGnz7EAv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美漫，合集                                                   | 美漫                                                         | 剧集，动画，欧美，合集                                       |
+| https://www.bilibili.com/video/BV13PHGzREHL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 棋魂                                                         | 棋魂                                                         | 剧集，动画，日本                                             |
+| https://www.bilibili.com/video/BV1mB4xziEPL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 药物少女的呢喃，全两季                                       | 药物少女的呢喃 全两季4K超清修复无删减完整版                  | 剧集，动画，日本                                             |
+| https://www.bilibili.com/video/BV1Sn49zQEnF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 龙珠1E1-153全                                                | 1080P色彩修复版]龙珠 第一部  1-153集全集 未删减版            | 剧集，动画，日本                                             |
+| https://www.bilibili.com/video/BV1qtWszCEfd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 请回答，全20集，国语                                         | 国语版《请回答》全20集 reaction                              | 剧集，韩国                                                   |
+| https://www.bilibili.com/video/BV1yEYXzdEi4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 超甜韩剧，大力女子都奉顺，总16集                             | 4K超甜韩剧《大力女子都奉顺》合集总16集  无删减               | 剧集，韩国                                                   |
+| https://www.bilibili.com/video/BV1ceeJzhEDm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 高分韩剧，举重妖精金福珠，总16集                             | 4K超高分韩剧《举重妖精金福珠》合集总16集  无删减             | 剧集，韩国                                                   |
+| https://www.bilibili.com/video/BV1uitozAEbK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 高分韩剧，我的大叔，全16集                                   | 4K超高分韩剧《我的大叔》 全16集  无删减                      | 剧集，韩国                                                   |
+| https://www.bilibili.com/video/BV1ULaUzEENk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 必看电视剧，合集                                             | 必看电视剧                                                   | 剧集，合集                                                   |
+| https://www.bilibili.com/video/BV1AwWzzZEKj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 无神S1E1-7                                                   | 《无神 第一季》7集全 超清双字  高分西部动作惊悚              | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1pe46ziEyt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 戈德堡一家，金色年代S1-4 720p  中英双字                      | 戈德堡一家/金色年代S1 720p  中英双字                         | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1LcWJzoEid/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日常工作，天兵公园，全八季                                   | 戈德堡一家/金色年代S1 720p  中英双字                         | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1EDWqz7EWL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 先发五虎，S2，全8集                                          | 10月16日首发《先发五虎 第二季  全8集》SGA/杜兰特/哈利伯顿/哈登/布朗 | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1uJnAzfEqT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 暗黑天使                                                     | 暗黑天使                                                     | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1sbHrzcEAm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 吸血鬼猎人巴菲                                               | 吸血鬼猎人巴菲                                               | 剧集，欧美                                                   |
+| https://www.bilibili.com/video/BV1SU4wzrEgB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 失序边缘2025S1                                               | 《失序边缘第一季》更至1-2集 超清双字  2025动作惊悚（未删减） | 剧集，欧美，动作                                             |
+| https://www.bilibili.com/video/BV13J4yzaErg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 花燃，全50集                                                 | 花燃 花燃ゆ》全50集                                          | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1HUWtzoEqo/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日剧，所罗门的伪证8集全                                      | 日剧《所罗门的伪证》8集全 上白石萌歌 / 宫泽冰鱼 / 山本舞香 主演 | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1PYHrzbE4p/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 漫改甜剧，你认真要结这种婚吗，8集全                          | 漫改甜剧《你认真要结这种婚吗？》8集全                        | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1LwJfzREEQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日剧，以吻封缄，全10集                                       | 日剧《以吻封缄》全10集 剧情/爱情/漫改  绀野彩夏藤井流星      | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1RmaNzqELy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日剧，晚酌的流派4夏篇全10集                                  | 日剧《晚酌的流派4~夏篇~》全10集  4k高清 无删减               | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV11P4NzuEma/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 晚酌的流派全四季共42集                                       | 晚酌的流派全四季（未删减版）共42集                           | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1wv4kzCExU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 平清盛，全50集                                               | 平清盛》全50集                                               | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1he4NzUEtA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 葵德川三代，全49集                                           | 葵德川三代（全49集）                                         | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1YHeGzxEpz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 血疑，全29集                                                 | 血疑（全29集                                                 | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1xxWyz2EXw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 军师官兵卫，全50集                                           | 《军师官兵卫 軍師官兵衛》全50集                              | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1vP4bz4EZh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 怎么办家康，全48集                                           | 《怎么办家康 どうする家康 》全48集                           | 剧集，日本                                                   |
+| https://www.bilibili.com/video/BV1PYHrzbE4p/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日剧合集                                                     | 日剧合集                                                     | 剧集，日本，合集                                             |
+| https://www.bilibili.com/video/BV1RmaNzqELy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 热门日剧 4k未删减                                            | 热门日剧 4k未删减                                            | 剧集，日本，合集                                             |
+| https://www.bilibili.com/video/BV1YHeGzxEpz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日韩专区，合集                                               | 日韩专区                                                     | 剧集，日本，合集                                             |
+| https://www.bilibili.com/video/BV1V1W6z7ERm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英语版武林外传8小时合集                                      | 英语版《武林外传》8小时合集                                  | 剧集，中国，英语                                             |
+| https://www.bilibili.com/video/BV1KpjMztEPX?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK儿童百科                                                   | 全100集，DK儿童百科，每天一集涨知识，孩子必看自然科普动画纪录片 | 科普，地理，课程，儿童，DK，百科                             |
+| https://www.bilibili.com/video/BV1q44y1x7xU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 科学姥姥，科普，合集                                         | 科学姥姥                                                     | 科普，合集                                                   |
+| https://www.bilibili.com/video/BV1FH4y17719?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | MC中的经济学                                                 | MC中的经济学                                                 | 科普，经济学，课程                                           |
+| https://www.bilibili.com/video/BV1J34y1K7ZD?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 草木有言，DK植物大百科                                       | 草木有言，DK植物大百科                                       | 科普，课程，DK，植物，百科                                   |
+| https://www.bilibili.com/video/BV1p7KfzqEZs?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK儿童百科全书                                               | DK儿童百科全书，动画版（1080P超清普通话48集）                | 科普，课程，儿童，DK，百科                                   |
+| https://www.bilibili.com/video/BV1VaNDzwE6h?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK系列百科《熊猫博士的奇妙探索之旅》                         | 全230集，DK系列百科《熊猫博士的奇妙探索之旅》从自然万象到宇宙奥秘的动画纪实百科 | 科普，课程，儿童，DK，百科                                   |
+| https://www.bilibili.com/video/BV1xZ7YzeEa4?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK儿童百科                                                   | DK儿童百科动画，每日打卡！带孩子解锁自然科普知识，必看的科学启蒙纪录片来啦~ | 科普，课程，儿童，DK，百科，动画                             |
+| https://www.bilibili.com/video/BV14C6KYuEZs/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | BBC户外自然科普儿童英文节目《Go  Wild》                      | BBC户外自然科普儿童英文节目《Go  Wild》45集，1080P高清视频带英文字幕+音频MP3】 | 科普，课程，儿童，英语，听力，科普                           |
+| https://www.bilibili.com/video/BV1Ga411A71Z?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Kur科普Kurzgesagt                                            | Kur科普，100集+全网最全Kurzgesagt视频全辑（中英字幕）        | 科普，课程，英语，Kur                                        |
+| https://www.bilibili.com/video/BV1q44y1x7xU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 让光慢下来有什么用？                                         | 让光慢下来有什么用？费这么大劲，连打出去的兵乓球都比它快     | 科普，物理                                                   |
+| https://www.bilibili.com/video/BV11341157Wz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 在镜子面前演示宇称不守恒                                     | 在镜子面前演示宇称不守恒                                     | 科普，物理                                                   |
+| https://space.bilibili.com/1010097026?spm_id_from=333.788.upinfo.head.click | B站UP主，道理学趣味，物理科普                                | 道理学趣味，物理科普                                         | 科普，物理，B站UP                                            |
+| https://www.bilibili.com/video/BV1jnTfzbET6?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK儿童百科                                                   | 全100集，DK儿童百科，每天一集涨知识，孩子必看百科科普动画纪录片 | 科普，物理，课程，儿童，DK，儿童百科                         |
+| https://www.bilibili.com/video/BV1cV41167fD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 碧蓝之海，漫画解说                                           | 碧蓝之海#1】建议改为：叠叠乐                                 | 漫画，解说                                                   |
+| https://www.bilibili.com/video/BV1vE421u7Pa/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2024泰国小姐泳装全场                                         | 8K，2024泰国小姐泳装全场                                     | 美女，服装秀，泳装                                           |
+| https://www.bilibili.com/video/BV1kj411D7yL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 复刻强效食肉动物诱饵                                         | 真人复刻，强效食肉动物诱饵，这是诱来个什么玩意？             | 美食，复刻                                                   |
+| https://www.bilibili.com/video/BV1cxVSzdEYx/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 心理·情感·人文健康，合集                                     | 心理·情感·人文健康                                           | 人文，合集                                                   |
+| https://space.bilibili.com/472666322?spm_id_from=333.788.upinfo.head.clic | 言趣日语木子老师，B站UP                                      | 言趣日语木子老师                                             | 日语，B站UP，综合                                            |
+| https://www.bilibili.com/video/BV1m5411c7TT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 新标日语单词                                                 | 日语学习：新标日单词，早中晚跟读一次！！不知不觉就记住了     | 日语，词汇                                                   |
+| https://www.bilibili.com/video/BV18t411J7nF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 公共日语，共74集，北京大学，滕军                             | 公共日语，共74集，北京大学，滕军教授                         | 日语，课程，北京大学，公共日语                               |
+| https://www.bilibili.com/video/BV1BJ411m7RN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日本小朋友视频学五十音、数字、星期几                         | 日本小朋友用这3个洗脑视频学五十音、数字、星期几，朗朗上口，太可爱了吧 | 日语，口语，课程                                             |
+| https://www.bilibili.com/video/BV1Yt411R7MM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 每天5分钟，30天日语基础口语学习合辑                          | 日语超实用！每天5分钟的30天日语基础口语学习合辑              | 日语，口语，课程                                             |
+| https://www.bilibili.com/video/BV1ex411577i/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【【北京大学】保护生物学】                                   | 生物，课程，北京大学，保护生物学                             |
+| https://www.bilibili.com/video/BV1db411E7aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，分子生物学，朱玉贤                                 | 【【北京大学】分子生物学朱玉贤】                             | 生物，课程，北京大学，分子生物学                             |
+| https://www.bilibili.com/video/BV1ak4y1r78M/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，高级神经生物学（上）                               | 北京大学，高级神经生物学（上）                               | 生物，课程，北京大学，高级神经生物学                         |
+| https://www.bilibili.com/video/BV1o55VznEVk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 国关经济，合集                                               | 国关经济                                                     | 时政，合集                                                   |
+| https://www.bilibili.com/video/BV144411T7pN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【北京大学2018年12月数学系研究生入学考试数学分析科目最后一题的第二问】 | 数学，考研，解题，北京大学2018年12月数学系研究生入学考试数学分析科目最后一题的第二问 |
+| https://www.bilibili.com/video/BV1TZ4y1P7XQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，高等代数2020春                                     | 北京大学公开课，高等代数（2020春）                           | 数学，课程，北京大学，高等代数                               |
+| https://www.bilibili.com/video/BV19W411G7QU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，丘维声，高等代数                                   | 北大，高等代数                                               | 数学，课程，北京大学，高等代数                               |
+| https://www.bilibili.com/video/BV1jR4y1M78W/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，丘维声，高等代数课程1080P高清修复版(全151集)       | 北大丘维声教授清华高等代数课程1080P高清修复版(全151集)       | 数学，课程，北京大学，高等代数                               |
+| https://www.bilibili.com/video/BV1Fr4y1T7kP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，精品公开课，王福正，高等代数（全59讲）             | 北大精品公开课，高等代数（全59讲）                           | 数学，课程，北京大学，高等代数                               |
+| https://www.bilibili.com/video/BV17p4y1h7bT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【【北京大学公开课】低维流形（全23讲）】                     | 数学，课程，北京大学，王诗宬，低维流形（全23讲）             |
+| https://www.bilibili.com/video/BV1KymbYpEMi?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK图解数学                                                   | DK数学启蒙，动画184个数学核心知识点！274种数学思维！详细讲解每个数学知识 | 数学，课程，儿童，DK                                         |
+| https://www.bilibili.com/video/BV1LGgXzHEDA?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK图解数学                                                   | DK图解数学                                                   | 数学，课程，儿童，DK                                         |
+| https://www.bilibili.com/video/BV1vx411r7uA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【【北京大学公开课】洪子诚老师《中国当代文学史》编写中的几个问题】 | 文学，课程，北京大学，洪子诚，《中国当代文学史》编写中的几个问题 |
+| https://www.bilibili.com/video/BV1kP411u7jr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 蝴蝶步2.0                                                    | 蝴蝶步2.0                                                    | 舞蹈                                                         |
+| https://www.bilibili.com/video/BV1AM4y1M71p/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 猛男版新宝岛                                                 | 破亿纪念!猛男版新宝岛 4K高清重置加强版                       | 舞蹈                                                         |
+| https://www.bilibili.com/video/BV1LM411H79F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日本红极一时的登美丘魔性舞蹈                                 | 4K日本红极一时的登美丘魔性舞蹈                               | 舞蹈，登美丘，日本                                           |
+| https://www.bilibili.com/video/BV1rp4y1k7ki/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 猛男舞团，影流之主                                           | 猛男舞团，影流之主                                           | 舞蹈，猛男舞团                                               |
+| https://www.bilibili.com/video/BV1Zs4y1F7i6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日本一流桑巴舞                                               | 日本一流桑巴舞                                               | 舞蹈，桑巴                                                   |
+| https://www.bilibili.com/video/BV1Wx411T7uE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【电磁学 (北京大学陈秉乾教授)】                              | 物理，课程，北京大学，陈秉乾，电磁学                         |
+| https://www.bilibili.com/video/BV1B54y1p76R/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【陈秉乾 电磁学 北京大学物理四大神兽之一  当代国内最好的电磁学课程（内含教材与资料）】 | 物理，课程，北京大学，陈秉乾，电磁学                         |
+| https://www.bilibili.com/video/BV1Hz4y1S7wt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 钟锡华，光学，北京大学物理四大神兽之一，当代国内最好的光学课程 | 钟锡华，光学，北京大学物理四大神兽之一，当代国内最好的光学课程（内含教材与资料） | 物理，课程，北京大学，光学                                   |
+| https://www.bilibili.com/video/BV1Nr4y1P7Pt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，叶沿林，核物理与粒子物理导论                       | 北京大学，公开课，核物理与粒子物理导论                       | 物理，课程，北京大学，核物理与粒子物理导论                   |
+| https://www.bilibili.com/video/BV1Dx411f7bi/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【电磁学 北京大学 王稼军教授】                               | 物理，课程，北京大学，王稼军，电磁学                         |
+| https://www.bilibili.com/video/BV1tt411E74M/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【北京大学-变态心理学（国家级精品课）】                      | 心理，课程，北京大学，钱铭怡，变态心理学                     |
+| https://www.bilibili.com/video/BV1ut411n7Bd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 |                                                              | 【变态心理学 北京大学】                                      | 心理，课程，北京大学，钱铭怡，变态心理学                     |
+| https://www.bilibili.com/video/BV1Sx4y1t7Da/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 镜像心理，你眼中的别人，其实是你自己                         | 镜像心理，你眼中的别人，其实是你自己                         | 心理，问题                                                   |
+| https://www.bilibili.com/video/BV1Jf4zz8EkE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑色生命力，来自逆境中的馈赠                                 | 来自逆境中的馈赠                                             | 心理，问题                                                   |
+| https://www.bilibili.com/video/BV1Sx4y1t7Da/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 阿华的奇幻旅行，心理，合集                                   | 阿华的奇幻旅行                                               | 心理，问题，合集                                             |
+| https://www.bilibili.com/video/BV13k4y1f7XR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 古装颜值向                                                   | 古装颜值向                                                   | 颜值，古装                                                   |
+| https://www.bilibili.com/video/BV1kx411M72i/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED演讲，麦克·贝茨：我难忘的一次中国行                       | TED演讲，麦克·贝茨：我难忘的一次中国行                       | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1q4411E7y4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED演讲，30岁前，请逼自己成为这样的人                        | TED演讲，30岁前，请逼自己成为这样的人                        | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1Zb411B71v/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED演讲，一个最简单的方式戒掉坏习惯！                        | TED演讲：一个最简单的方式戒掉坏习惯！                        | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1NE41197sr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED，改变自己，只需要两年时间                                | TED：改变自己，只需要两年时间                                | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1kt411e7nz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 为什么你无法说服杠精？                                       | 为什么你无法说服杠精？这个TED讲透了。                        | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1Kx411i7tY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 如何训练一个人的逻辑思维能力                                 | TED演讲：如何训练一个人的逻辑思维能力                        | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1r4411q7JT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED演讲：面对不确定的未来，我们该怎么办？                    | TED演讲：面对不确定的未来，我们该怎么办？                    | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV12b411B7Ho/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 25岁前请逼自己成为这样的人                                   | 被分享60万次的TED演讲：25岁前请逼自己成为这样的人  美国伯克利】 | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1mx411a78C/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED，少女对于性愉悦的观感                                    | TED，少女对于性愉悦的观感（英汉双语字幕）                    | 演讲，TED，英语                                              |
+| https://www.bilibili.com/video/BV1sb411h7de/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2018年TED英语演讲精选67篇                                    | TED演讲合集2018年TED英语演讲精选67篇【高清版】（中英文对照）】 | 演讲，TED，英语，合集                                        |
+| https://www.bilibili.com/video/BV1ft411g7Jm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED63集精读版                                                | TED，63集精读版·学习党必备跟读练习（视频+音频+中英文对照文本） | 演讲，TED，英语，合集                                        |
+| https://www.bilibili.com/video/BV1vcaAzwEYE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | TED演讲精读合集30集年度版                                    | TED演讲精读合集30集年度版，听力瓶颈期必看！（双语精读字幕）  | 演讲，TED，英语，合集                                        |
+| https://www.bilibili.com/video/BV1YW411b7Yp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 清华跨年演讲：没有什么大牛学霸，一切只是厚积薄发！           | 清华跨年演讲：没有什么大牛学霸，一切只是厚积薄发！           | 演讲，学习方法                                               |
+| https://www.bilibili.com/video/BV1XRS9YzEX8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 现代舞，表演，合集                                           | 现代舞，表演，合集                                           | 艺术，表演，舞蹈，现代舞，合集                               |
+| https://www.bilibili.com/video/BV1Kt4y1y7uz?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 夏威夷传统草裙舞，男                                         | 夏威夷传统草裙舞                                             | 艺术，舞蹈，草裙舞                                           |
+| https://www.bilibili.com/video/BV1JT4y1F7JR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北大公开课，“非遗”之首——昆曲经典艺术欣赏                     | 【北大公开课：《“非遗”之首——昆曲经典艺术欣赏》】             | 艺术，戏曲，课程，北京大学，欣赏，昆曲                       |
+| https://www.bilibili.com/video/BV11SxWz4ENL/?share_source=copy_we | 神级音质，The  Weeknd-《After Hours                          | 至臻母带  神级音质来感受起飞的感觉 The Weeknd-《After  Hours》索尼DSEE 96000Hz 极致纯享版 耳机食用 | 音乐，HIFI                                                   |
+| https://www.bilibili.com/video/BV1aq4y1g7eo/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Far Away From Home                                           | 被称全球最好听歌曲之一《Far Away  From Home》，前奏一响就沦陷 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1Wy4y1e71h/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | See You Again，油管4亿播放                                   | 开口跪，See You  Again，油管4亿播放组合红岩谷绝美翻唱        | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV176M3zPEZu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 莫愁乡                                                       | 莫愁乡，亚细亚旷世奇才                                       | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1jg411b7T7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 坐忘道                                                       | 坐忘道完整版                                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV19B4y1m77e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 超燃励志                                                     | 超燃励志                                                     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1u741117Ps/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | We are the world                                             | 经典《We are the  world》，每次听都是震撼心灵的盛宴          | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1M5411p7PB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Crush                                                        | 油管7千万播放的暗恋神曲《Crush》，说不出口的悸动，恋爱的感觉！ | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1Sr4y1h79z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 梦该醒了，少年                                               | “梦该醒了，少年”                                             | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1sw411971F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 未来式情歌                                                   | 未来式情歌                                                   | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV12pnHzzE5a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 我要对你实行我的爱情专属权                                   | “我要对你实行我的爱情专属权”                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1EHsTeuE6q/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 护花使者                                                     | 大唐电音！！！中国人不蹦洋迪！！！《护花使者》完整版~        | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1Ft411Z78N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 江南皮革厂倒闭了，神曲                                       | 江南皮革厂倒闭了，洗脑神曲视频版                             | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1cA411i7u2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 钢铁洪流进行曲，油管                                         | 油管搬运)你敢相信这是一个日本人剪的《钢铁洪流进行曲          | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1Nb411h7xt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 幼苗版Let her  go，佛系主唱，厌世鼓手，灵魂贝斯，还有一个蒙圈的吉他手 | 佛系主唱，厌世鼓手，灵魂贝斯，还有一个蒙圈的吉他手           | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1DV411d7Lx/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 当你真的喜欢说唱但是你父母送你去学了歌剧                     | 当你真的喜欢说唱但是你父母送你去学了歌剧                     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1o64y1f7NS/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 大电音寺住持                                                 | 大电音寺住持                                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1jK411373z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2 Phut Hon，越南神曲                                         | Phut Hon洗脑中                                               | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1DK411G7zg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Iron Sky                                                     | 人类音乐史上能进前十的一首歌《Iron  Sky》                    | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1JT411h7gz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 凄美地，聚会随唱版                                           | 凄美地，聚会随唱版                                           | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1GM411V7ZC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 金风玉露                                                     | 金风玉露                                                     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1ME421T74i/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美术生翻唱，弱水三千                                         | 美术生翻唱，弱水三千                                         | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV17Z8meeEXr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 醉里挑灯看剑                                                 | 醉里挑灯看剑                                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1yP411L7oR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 七里香                                                       | 雨下整夜，我的爱溢出就像雨水                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1BK411w7BA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Talking to the moon                                          | 那些令人惊艳的翻唱，Talking to  the moon                     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1dN4y1L72a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 他不懂，翻唱                                                 | 他不懂，翻唱，温柔到爆了                                     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1FJ411V7gy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 处处吻，混编                                                 | 处处吻】 愣着干嘛 进来白嫖啊                                 | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1oE411b788/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 野狼disco，混编                                              | 港影disco，四十多位港星热唱野狼disco，回顾港片的黄金时代     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1fkyeY7E6w/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 翻唱，Daisies雏菊                                            | 港影disco，四十多位港星热唱野狼disco，回顾港片的黄金时代     | 音乐，歌曲                                                   |
+| https://www.bilibili.com/video/BV1js421g7ZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Nothing's New                                                | 很难想象我是怎么发出这种声音的                               | 音乐，歌曲，Bendy                                            |
+| https://www.bilibili.com/video/BV1j78czREdY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | fly                                                          | 听一秒感觉要升天了                                           | 音乐，歌曲，Bendy                                            |
+| https://www.bilibili.com/video/BV1j78czREdY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Bendy的翻唱                                                  | Bendy的翻唱                                                  | 音乐，歌曲，Bendy，合集                                      |
+| https://www.bilibili.com/video/BV1Tq4y1778D/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 海阔天空                                                     | 4K，Beyond《海阔天空》神级现场！                             | 音乐，歌曲，Beyond                                           |
+| https://www.bilibili.com/video/BV1cJ4m1N74N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 真的爱你                                                     | Beyond《真的爱你》经典神曲现场！                             | 音乐，歌曲，Beyond                                           |
+| https://www.bilibili.com/video/BV1cJ4m1N74N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Beyond合集                                                   | Beyond                                                       | 音乐，歌曲，Beyond，合集                                     |
+| https://www.bilibili.com/video/BV1Zg411N7sh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | When I Was Your Man                                          | When I Was Your Man                                          | 音乐，歌曲，Carlmalone  Montecido                            |
+| https://www.bilibili.com/video/BV1KM411f7fm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 萨勒芬妮愉快地给你唱了                                       | 好耶！是萨勒芬妮愉快地给你唱了Childhood  Dreams              | 音乐，歌曲，Childhood  Dreams                                |
+| https://www.bilibili.com/video/BV1BX4y1c7gd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 追梦赤子心                                                   | 4K，GALA《追梦赤子心》经典现场！                             | 音乐，歌曲，GALA                                             |
+| https://www.bilibili.com/video/BV1us41137Fd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 极乐净土                                                     | Miume・MARiA217极乐净土舞见  第4弹                           | 音乐，歌曲，GARNiDELiA，日语                                 |
+| https://www.bilibili.com/video/BV11P4y1K7Qp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Wake                                                         | 超燃励志，Wake，Hillsong  Young&Free 喂，醒醒，该出发了      | 音乐，歌曲，Hillsong  Young&Free                             |
+| https://www.bilibili.com/video/BV1QL411c7CY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全球10位艺术家合唱                                           | 开口跪，全球10位艺术家合唱，Imagine，高潮瞬间潸然泪下        | 音乐，歌曲，Music Travel  Love                               |
+| https://www.bilibili.com/video/BV1RN4y1n75t/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | That Girl                                                    | 奥斯卡金曲《That Girl》#车载音乐  #欧美音乐 #thatgirl        | 音乐，歌曲，olly Murs                                        |
+| https://www.bilibili.com/video/BV19B4y1m77e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Counting Stars                                               | 超燃励志，Counting  Stars，OneRepublic，充满活力不迷茫       | 音乐，歌曲，OneRepublic                                      |
+| https://www.bilibili.com/video/BV1sL4y177sC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | rather do my MATH                                            | 谈恋爱？不如做数学题                                         | 音乐，歌曲，Robin Gan                                        |
+| https://www.bilibili.com/video/BV1a7411z7m7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Someone Like You                                             | 4K，阿黛尔《Someone Like  You》万人大合唱现场！              | 音乐，歌曲，阿黛尔                                           |
+| https://www.bilibili.com/video/BV1Af421X7Kg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Hello                                                        | 4K，阿黛尔《Hello》火力全开的现场！                          | 音乐，歌曲，阿黛尔                                           |
+| https://www.bilibili.com/video/BV1Af421X7Kg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 阿黛尔合集                                                   | 阿黛尔                                                       | 音乐，歌曲，阿黛尔，合集                                     |
+| https://www.bilibili.com/video/BV1Hx411x7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | My All                                                       | 初识不知曲中意 再听已是曲中人                                | 音乐，歌曲，滨崎步，日语                                     |
+| https://www.bilibili.com/video/BV1EX4y1s7RM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Kingfish                                                     | 但凡少一斤都唱不出这种感觉                                   | 音乐，歌曲，布鲁斯                                           |
+| https://www.bilibili.com/video/BV1qU4y1F73A/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | See You Again                                                | 4K查理·普斯《See You  Again》爆火神曲！                      | 音乐，歌曲，查理普斯                                         |
+| https://www.bilibili.com/video/BV1daXrY2EPt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 跳楼机，翻唱，粤语版                                         | 求求你，别再刀了！B站陈奕迅《跳楼机》真.粤语版               | 音乐，歌曲，常颖杰                                           |
+| https://www.bilibili.com/video/BV1EP4y1s7K3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 千千阙歌                                                     | 4K，陈慧娴《千千阙歌》最强音质版本！粤语史诗级神曲           | 音乐，歌曲，陈慧娴                                           |
+| https://www.bilibili.com/video/BV1p4411z7Dy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 无名之辈                                                     | 陈雪燃《无名之辈》已循环十遍，每次听的都很热血沸腾           | 音乐，歌曲，陈雪燃                                           |
+| https://www.bilibili.com/video/BV1hQ4y1A7ZT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏卡不列，原版MV                                             | 苏卡不列，原版MV                                             | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1v5411V7ik/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏维埃进行曲                                                 | 苏维埃，同志们！乌拉                                         | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV18x41117d7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 高燃/混剪/地狱进行曲，为解放世界人民而战斗！                 | 高燃/混剪/地狱进行曲，为解放世界人民而战斗！让列宁同志的旗帜插满世界每一个角落 | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1M4411S7eZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 俄式土嗨，DJ，Blyatman  & Pelix                              | 俄式土嗨DJ Blyatman &  DJ Pelix feat. xeK - SLAVIC NAMES     | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1b7411b7Xv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 很好听的俄语歌，Би-2-Пекло，腥味十足                         | 发现了一个很好听的俄语歌，Би-2-Пекло，腥味十足               | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1GbsxejETN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 这次来个俄语翻唱吧！                                         | 这次来个俄语翻唱吧！                                         | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1HxQtYnEiJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 丈夫在锅里，孩子在胃里，Salvatore                            | 丈夫在锅里，孩子在胃里”，是什么歌                            | 音乐，歌曲，俄语                                             |
+| https://www.bilibili.com/video/BV1Yv411K7PY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Dance Monkey，甜嗓                                           | 燃起来了，Dance  Monkey与甜嗓的奇妙搭配                      | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1B64y1q7Cw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 反方向的钟                                                   | 反方向的钟，你为什么不爱我                                   | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1gg4y1s7jN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 百年孤寂，微醺版                                             | 微醺版，百年孤寂                                             | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1D4411K7mA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 激情演唱，吻得太逼真                                         | 傻屌室友，激情演唱，吻得太逼真                               | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1RZ4y1W7fD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爱如潮水                                                     | 那些在学校用劣质音响唱出百万调音师的同学                     | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1FT4y1o7MK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 反方向的钟                                                   | 反方向的钟，让人穿梭时空的治愈嗓音                           | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1VZ4y1T78D/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一路向北                                                     | 一路向北                                                     | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1Yf4y1g7Na/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 杀死那个石家庄人                                             | 杀死那个石家庄人，希望大家喜欢哈哈                           | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1Wy4y1B7f6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 杀死那个石家庄人                                             | 杀死那个石家庄人                                             | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1dP4y1g7D4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 青花瓷                                                       | 青花瓷，天青色等烟雨，而我在等你                             | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1DL4y1B7p7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爱人错过                                                     | 爱人错过，翻唱                                               | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1TG41197SK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 奢香夫人                                                     | 唱《奢香夫人》，做气质学生                                   | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1gH4y157KF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 虚拟，丐版                                                   | 你是我未曾拥有无法捕捉的亲昵，宿舍翻唱《虚拟》               | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1Vi4y1x7bk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 他不爱我，清唱                                               | 清唱，他不爱我                                               | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1uJ411U7a2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一路向北                                                     | 我一路向北，离开有你的季节，你说你好累，已无法再爱上谁  颓了！ | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1kJ41127ap/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 搁浅                                                         | 搁浅》我只能永远读着对白，读着我给你的伤害—这歌难，唱的很憋  | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1JE411Z7mD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 有点甜，大叔翻唱                                             | 大叔翻唱《有点甜》，听了看了想打人！                         | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1Sa4y1y7Qd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 凄美地                                                       | 嘿，等我找到你！                                             | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1mT4y1d7qR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Hey Jude ，白发老太                                          | 再唱披头士，已是白头                                         | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV11S411P7k7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | LaLaLa                                                       | 你已经迷上山峰，无法回头了，La La  La                        | 音乐，歌曲，翻唱                                             |
+| https://www.bilibili.com/video/BV1aTvieqEfw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 波西米亚狂想抽                                               | 波西米亚狂想抽                                               | 音乐，歌曲，翻唱，丁真                                       |
+| https://www.bilibili.com/video/BV1ap4y1r7L8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Колыбельная                                                  | 当下最火俄语歌，Колыбельная，战争是残酷的，和平来之不易      | 音乐，歌曲，翻唱，俄语                                       |
+| https://www.bilibili.com/video/BV1gH4y157KF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 努力生活的西鱼                                               | 歌曲合集                                                     | 音乐，歌曲，翻唱，合集                                       |
+| https://www.bilibili.com/video/BV1kJ41127ap/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 歌者瓜牛，合集                                               | 颓废期合集                                                   | 音乐，歌曲，翻唱，合集                                       |
+| https://www.bilibili.com/video/BV1aTvieqEfw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 他的前半生                                                   | 他的前半生                                                   | 音乐，歌曲，翻唱，合集                                       |
+| https://www.bilibili.com/video/BV1dP4y1g7D4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 听歌合集                                                     | 听歌                                                         | 音乐，歌曲，翻唱，合集，雁巡                                 |
+| https://www.bilibili.com/video/BV1aU411d7dW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | xinđừngnhấcmáy，越南神曲                                     | 最近被这首越南神曲洗脑了，xinđừngnhấcmáy                     | 音乐，歌曲，翻唱，芊芊龍龍                                   |
+| https://www.bilibili.com/video/BV1Lm411R7sC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | dadada，俄罗斯神曲                                           | 学习俄罗斯神曲第一天《dadada》                               | 音乐，歌曲，翻唱，芊芊龍龍，俄语                             |
+| https://www.bilibili.com/video/BV1VRABehEzm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 丁咔                                                         | 丁咔                                                         | 音乐，歌曲，翻唱，秋桔                                       |
+| https://www.bilibili.com/video/BV1qp4y1t7DJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 海底                                                         | 凤凰传奇翻唱《海底》                                         | 音乐，歌曲，凤凰传奇                                         |
+| https://www.bilibili.com/video/BV1JV411K7V3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 悬溺                                                         | 在百万豪装录音棚大声听  葛东琪《悬溺》Hi-res                 | 音乐，歌曲，葛东琪                                           |
+| https://www.bilibili.com/video/BV1N7PSeJEW8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 六耳                                                         | 六耳歌词排版，我地上疯天上闹，撞碎星辰知多少                 | 音乐，歌曲，龚琳娜                                           |
+| https://www.bilibili.com/video/BV1YY4y127S6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 你就想摘我的果，你还想捻我的花                               | 你就想摘我的果 你还想捻我的花                                | 音乐，歌曲，卦者灵风                                         |
+| https://www.bilibili.com/video/BV1RF411q7tA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一生必听英文歌合集                                           | 一生必听英文歌，适合单曲循环                                 | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1t44yzoE8P/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 橘子不是青柠，酸酸甜甜                                       | 橘子不是青柠，酸酸甜甜                                       | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1N7PSeJEW8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 音乐分享                                                     | 音乐分享                                                     | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1WU4y1a7rb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英文神级现场                                                 | 英文神级现场                                                 | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV12P411u7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 不骗中国人！B站。。。合集                                    | 不骗中国人！B站。。。                                        | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1Sr4y1h79z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 唯美合集                                                     | 唯美                                                         | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1sw411971F/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 值得你单曲循环的100首宝藏热歌合集                            | 时长6小时36分值得你单曲循环的100首宝藏热歌合集！             | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1ju41197xh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2000-2009最强华语金曲                                        | 十年榜2000-2009年最强华语金曲TOP100                          | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1L54y1E7yf/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 1983华语金曲榜TOP50                                          | 华语巅峰1983年华语乐坛金曲榜TOP50,《射雕英雄传》原声屠榜，《我的中国心》无悬念夺冠！ | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1L54y1E7yf/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 华语音乐排行榜大全                                           | 华语音乐排行榜大全                                           | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1VY411p7PJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 值得单曲循环的100首宝藏热歌合集                              | 戴上耳机原地起飞值得你单曲循环的100首宝藏热歌合集            | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1VY411p7PJ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | A零距离                                                      | A零距离                                                      | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1vm411Z7ZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 网易云评神仙歌曲200首合集                                    | 网易云评论10W+的神仙歌曲200首合集                            | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1HZKAepEie/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 串烧推荐合集                                                 | 串烧推荐                                                     | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1KS411F7n3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 合集2                                                        | 合集2                                                        | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1wZG8zuETq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2025上半年爆火の小曲                                         | 盘点2025上半年爆火の小曲，很多人听过却不知道歌名             | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1mudzYvELh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2025年破亿emo神曲                                            | 2025年破亿emo神曲，每一首都收藏百万                          | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV12pnHzzE5a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 歌单大集合                                                   | 歌单大集合                                                   | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1bkNjz4E3f/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 这些歌小时候抱过我，合集                                     | 这些歌小时候抱过我                                           | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1971JYwEcV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 硬曲盲盒合集                                                 | 硬曲盲盒                                                     | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1jx9wYGEin/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 那些直击心灵的氛围音乐合集                                   | 那些直击心灵的氛围音乐                                       | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1NG411X7tp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | ××の小曲-bgm                                                 | ××の小曲-bgm                                                 | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1Am4y1w7HD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 20大直击灵魂的伤感纯音乐                                     | 20大直击灵魂的伤感纯音乐，没有歌词也能瞬间泪崩，太emo了      | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1Hv411z73N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爷青回合集                                                   | 爷青回                                                       | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1bW411n7fY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | bilibili入站必刷，合集                                       | bilibili入站必刷                                             | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV11f4y1K7F7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一张不像是本世纪的专辑，Этажи-Molchat  Doma                  | 一张不像是本世纪的专辑，Этажи-Molchat  Doma                  | 音乐，歌曲，合集                                             |
+| https://www.bilibili.com/video/BV1Zg411N7sh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 宇宙级の转音合集                                             | 宇宙级の转音                                                 | 音乐，歌曲，合集，Carlmalone  Montecido                      |
+| https://www.bilibili.com/video/BV1QL411c7CY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Music Travel Love                                            | Music Travel Love音乐之旅                                    | 音乐，歌曲，合集，Music Travel  Love                         |
+| https://www.bilibili.com/video/BV1v5411V7ik/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏联名曲                                                     | 苏联名曲                                                     | 音乐，歌曲，合集，俄语                                       |
+| https://www.bilibili.com/video/BV1V4411X7RT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Клетка                                                       | 毛子自沙用官方認定用曲DOOMER                                 | 音乐，歌曲，合集，俄语                                       |
+| https://www.bilibili.com/video/BV19V411n7L3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日语现场                                                     | 日语现场                                                     | 音乐，歌曲，合集，日语                                       |
+| https://www.bilibili.com/video/BV1us41137Fd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Miume?MARiA?217舞见                                          | Miume?MARiA?217舞见                                          | 音乐，歌曲，合集，日语                                       |
+| https://www.bilibili.com/video/BV1bLuQziECM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 那些直击灵魂的英文歌合集                                     | 那些直击灵魂的英文歌                                         | 音乐，歌曲，合集，英文                                       |
+| https://www.bilibili.com/video/BV1Zp421D7zv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 外语歌曲合集                                                 | 外语歌曲                                                     | 音乐，歌曲，合集，英文                                       |
+| https://www.bilibili.com/video/BV1e4421S7m7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 中文推荐合集                                                 | 中文推荐]‘戴好耳机，准备听歌！                               | 音乐，歌曲，合集，中文                                       |
+| https://www.bilibili.com/video/BV1RF411q7tA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | As Long As You Love  Me                                      | 重温经典后街男孩《As Long As  You Love Me》                  | 音乐，歌曲，后街男孩                                         |
+| https://www.bilibili.com/video/BV1VK411u7vy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 波西米亚狂想曲                                               | 4K，皇后乐队Queen《波西米亚狂想曲》核能现场！                | 音乐，歌曲，皇后乐队                                         |
+| https://www.bilibili.com/video/BV1fkyeY7E6w/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 来点音乐                                                     |                                                              | 音乐，歌曲，極光Aireiner，合集                               |
+| https://www.bilibili.com/video/BV1Hv411z73N/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 曾经我也想过一了百了                                         | 街头《曾经我也想过一了百了》但那只是曾经                     | 音乐，歌曲，街头艺人小高，日语                               |
+| https://www.bilibili.com/video/BV1EJ411v7cK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | what a wonderfull  world                                     | 感受一下世界级终极“烟嗓”，开口被震撼，一身鸡皮疙瘩           | 音乐，歌曲，爵士，合集                                       |
+| https://www.bilibili.com/video/BV12P411u7en/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Yellow                                                       | 22年前他花10分钟写的《Yellow》，我一听就是20年               | 音乐，歌曲，酷乐乐队                                         |
+| https://www.bilibili.com/video/BV15f4y1p7Gq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 加州旅馆                                                     | 4K，老鹰乐队Eagles加州旅馆神级现场！                         | 音乐，歌曲，老鹰乐队                                         |
+| https://www.bilibili.com/video/BV12b4y147DE/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Waiting for Love                                             | 神经典电音之作，Waiting for  Love，歌词温暖励志，激励有梦想的人 | 音乐，歌曲，励志                                             |
+| https://www.bilibili.com/video/BV14E411i7ar/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 起风了                                                       | 林俊杰，起风了，最燃高音版，极致蓝光收藏版                   | 音乐，歌曲，林俊杰                                           |
+| https://www.bilibili.com/video/BV1nV411E7RX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一生所爱                                                     | 4K卢冠廷，一生所爱，神级现场！                               | 音乐，歌曲，卢冠廷                                           |
+| https://www.bilibili.com/video/BV1cY41117NG/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Lemon                                                        | 4K，米津玄师《Lemon》2019神级现场                            | 音乐，歌曲，米津玄师                                         |
+| https://www.bilibili.com/video/BV1bo4y1A7S9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 平凡之路                                                     | 朴树《平凡之路》经典神作！                                   | 音乐，歌曲，朴树                                             |
+| https://www.bilibili.com/video/BV1KdSmYyEyY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Cry For Me                                                   | 我只为自己而哭泣，Cry For Me                                 | 音乐，歌曲，日语                                             |
+| https://www.bilibili.com/video/BV1yc4UzcEUT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | KILL MY LOVE                                                 | 听到人声的那一秒妩媚地夺走了我的心，KILL  MY LOVE            | 音乐，歌曲，日语                                             |
+| https://www.bilibili.com/video/BV1PW411x7mC/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日本网红最强洗脑神曲，把女儿嫁给我吧                         | 传销现场，日本网红最强洗脑神曲《把女儿嫁给我吧               | 音乐，歌曲，日语                                             |
+| https://www.bilibili.com/video/BV1vaEWzWEUr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 《我的父亲是瓦匠》日语版《私の父は屋根職人》                 | 改编庞麦郎《我的父亲是瓦匠》日语版《私の父は屋根職人》       | 音乐，歌曲，日语                                             |
+| https://www.bilibili.com/video/BV1yc4UzcEUT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 今日宜开心，日语歌，合集                                     | 今日宜开心，日语歌                                           | 音乐，歌曲，日语，合集                                       |
+| https://www.bilibili.com/video/BV1t44yzoE8P/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Bästa som hänt                                               | 好喜欢瑞典语这版，Bästa som  hänt                            | 音乐，歌曲，瑞典                                             |
+| https://www.bilibili.com/video/BV1uT4y1P7CX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Never Gonna Give You  Up，1987，经典                         | 经典老歌，瑞克·埃斯利《Never  Gonna Give You Up》1987 AI修复 | 音乐，歌曲，瑞克埃斯利                                       |
+| https://www.bilibili.com/video/BV19V411n7L3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 直到世界的尽头（灌篮高手）                                   | 4K上杉升、织田哲郎《直到世界的尽头》核爆现场！《灌篮高手》片尾曲！ | 音乐，歌曲，上杉升、织田哲郎，日语                           |
+| https://www.bilibili.com/video/BV1uW411m7Y5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 佛说，喊麦                                                   | 佛说，这可能是最好听的一首喊麦歌曲了，燃到爆炸               | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1eZqiY8EiP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 骂                                                           | 骂                                                           | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1gAN9euEez/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 从来如此，便对么                                             | 从来如此，便对么                                             | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1694y1i7Q2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 丹阳子，道诡异仙同人曲                                       | 丹阳子，道诡异仙同人曲，  听够了川味修仙那就来听听陕派修仙   | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1yV4y1t72u/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 白袍，国风                                                   | 白袍，国风说唱，假如赵云 诸葛亮 陈庆之  是rapper会怎么唱     | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1cK41117mP/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 坐忘道，MV                                                   | 坐忘道，MV三花聚顶！羽化登仙！哈哈道爷我悟了                 | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1uR4y1e79e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 成仙                                                         | 成仙-完整版                                                  | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1Zs411b7ZL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 最强卖鞋哥，这双王八牌皮鞋，神曲                             | 最强卖鞋哥，这双王八牌皮鞋，我买定了                         | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1La41197wZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 领导讲话                                                     | 领导讲话                                                     | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV19K411M7L8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 大唐Gang                                                     | 你那叫说唱厂牌吗？                                           | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1vq4y1t7YN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 说唱，我去世了                                               | 说唱，我去世了，然后                                         | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1yE42157bX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 工厂，MV，河南说唱之神                                       | MV]河南说唱之神-工厂                                         | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1cJ411K7Ew/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Old Town Road                                                | Old Town Road                                                | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1mS4y157Xw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管过亿的freestyle                                          | 油管上播放过亿的一段freestyle                                | 音乐，歌曲，说唱                                             |
+| https://www.bilibili.com/video/BV1yV4y1t72u/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Ofo凌四歌曲字幕vj合集                                        | Ofo凌四歌曲字幕vj合集                                        | 音乐，歌曲，说唱，合集                                       |
+| https://www.bilibili.com/video/BV1vq4y1t7YN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 他，合集                                                     | 他                                                           | 音乐，歌曲，说唱，合集                                       |
+| https://www.bilibili.com/video/BV1Hi421a7yH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 往生咒                                                       | 黑神话：悟空，往生咒，在国外鲨疯了！赛博诵经让老外陷入疯狂   | 音乐，歌曲，说唱，黑神话悟空                                 |
+| https://www.bilibili.com/video/BV1TVWjekE56/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 八方来财·因果                                                | 八方来财·因果，揽佬SKAI  ISYOUGOD.Official Music Video       | 音乐，歌曲，说唱，揽佬SKAI                                   |
+| https://www.bilibili.com/video/BV1bW411n7fY/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 改革春风吹满地，鬼畜                                         | 春晚鬼畜】赵本山：我就是念诗之王！【改革春风吹满地           | 音乐，歌曲，说唱，赵本山                                     |
+| https://www.bilibili.com/video/BV1fjt1zjErF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 等不到的等待（《长相思》ost）                                | 檀健次《等不到的等待（《长相思》ost）》百万豪装录音棚大声听  | 音乐，歌曲，檀健次                                           |
+| https://www.bilibili.com/video/BV1Ly4y1L7mA/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 给我一首歌的时间，神曲                                       | 原版来了，感谢大家的喜欢，这是我唯一的账号！                 | 音乐，歌曲，田一名                                           |
+| https://www.bilibili.com/video/BV1Tg411G7t1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 杀死那個石家庄人                                             | 万青，杀死那個石家庄人                                       | 音乐，歌曲，万青                                             |
+| https://www.bilibili.com/video/BV1Kr4y1A7G7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 笑看风云                                                     | “卧槽！音乐一响，多少人的青春回来了！”                       | 音乐，歌曲，汪小敏                                           |
+| https://www.bilibili.com/video/BV1Ar4y137cg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | fly me to the  moon，吉他弹唱                                | fly me to the moon  吉他弹唱                                 | 音乐，歌曲，王OKOK啦                                         |
+| https://www.bilibili.com/video/BV1414y1b7zc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Shadow Of The Sun                                            | Shadow Of The Sun                                            | 音乐，歌曲，王OKOK啦                                         |
+| https://www.bilibili.com/video/BV1CAqSYyEBK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 曾经我也想过一了百了                                         | 曾经我也想过一了百了                                         | 音乐，歌曲，我爱这土地，日语                                 |
+| https://www.bilibili.com/video/BV1E44y1m7C6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 吉他弹唱，一生所爱                                           | 吉他弹唱，一生所爱                                           | 音乐，歌曲，吴恩师                                           |
+| https://www.bilibili.com/video/BV1H7411n7JM/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 挪威的森林                                                   | 4K，伍佰《挪威的森林》神级现场！超级王炸代表作               | 音乐，歌曲，伍佰                                             |
+| https://www.bilibili.com/video/BV1vK4y1G7Bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 再度重相逢                                                   | 4K，伍佰《再度重相逢》神级现场！                             | 音乐，歌曲，伍佰                                             |
+| https://www.bilibili.com/video/BV1vK4y1G7Bu/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 伍佰合集                                                     | 伍佰                                                         | 音乐，歌曲，伍佰，合集                                       |
+| https://www.bilibili.com/video/BV1WU4y1a7rb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | My Love                                                      | 4K西城Westlife《My  Love》超感人现场！                       | 音乐，歌曲，西城                                             |
+| https://www.bilibili.com/video/BV1PL411W7Dw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 曾经我也想过一了百了                                         | 卧室硬核翻唱！曾经我也想过一了百了                           | 音乐，歌曲，咻咻满，日语                                     |
+| https://www.bilibili.com/video/BV15F411t7br/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | The Way I Still Love You                                     | 前奏秒杀的英文歌《The Way I  Still Love You》                | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1Na411J7Jh/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 7 Years                                                      | 只要听10秒，保证你爱上这首歌《7  Years》                     | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1MW4y1R7CR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Mr. Forgettable                                              | “请享受无法回避的孤独”《Mr.  Forgettable》                   | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1MR4y1P7T3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | In The Shadow Of The  Sun                                    | 《In The Shadow Of The  Sun》这歌有种涅槃重生直冲云霄的感觉  | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1Ks4y1d7gn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Empty Love                                                   | 写出了年轻人，虚度时光但又渴望爱”《Empty  Love》             | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1R84y1C7hH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Closer                                                       | 一入烟鬼深似海”—《Closer                                     | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1Pt4y1L7XV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Normal No More，电音                                         | 前方高能！电音女声《Normal No  More》开口就惊艳              | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1YW4y127to/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | So Far Away                                                  | 这首《So Far Away》高潮太过洗脑                              | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV18U4y1w7CX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Touch                                                        | 洗脑神曲《Touch》                                            | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1vP4y1M7Mz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 𝓢𝓸  𝓕𝓪𝓻 𝓐𝔀𝓪𝔂                                                 | 𝓢𝓸  𝓕𝓪𝓻 𝓐𝔀𝓪𝔂                                                 | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV11A411Y7sX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Tik Tok                                                      | 火爆全网《Tik Tok》                                          | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1bG4y1H7Qg/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Empty Love                                                   | “一首会让你心情变好的英文歌。”—《Empty  Love》               | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1cY4y1M7fL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | In The Shadow Of The  Sun                                    | “这首歌有种让人灵魂升华的感觉！”——《In  The Shadow Of The Sun》 | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1wd4y1w7kK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Payphone                                                     | 一开口就好听《Payphone》这歌真听不腻                         | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1oG4y1V75e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 20大直击灵魂的致郁神曲                                       | 20大直击灵魂的致郁神曲，音乐一响瞬间沦陷！网友：我emo了      | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV18Z4y117p6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Past Lives                                                   | 一首忧伤至极的神曲《Past  Lives》，开口沦陷，听完让人抑郁又释怀 | 音乐，歌曲，英文                                             |
+| https://www.bilibili.com/video/BV1GJ411x7h7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Never Gonna Give You  Up，MV                                 | 官方MV,Never Gonna Give  You Up,Rick Astley                  | 音乐，歌曲，英文，Rick Astley                                |
+| https://www.bilibili.com/video/BV1MW4y1R7CR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | “乡村乐”轻松的私人小调合集                                   | “乡村乐”轻松的私人小调                                       | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1Ks4y1d7gn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 节奏感英文合集                                               | “节奏感”情绪碰撞释放压                                       | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1R84y1C7hH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 超好听的外语歌                                               | 超好听的外语歌                                               | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1YW4y127to/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 经典英文歌                                                   | 经典英文歌                                                   | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1vP4y1M7Mz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | AMV(2019.8 -  2022-5)合集                                    | AMV(2019.8 - 2022-5)                                         | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1cY4y1M7fL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 超好听的外语歌曲合集                                         | 超好听的外语歌曲                                             | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1oG4y1V75e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 催泪伤感致郁                                                 | 催泪伤感致郁                                                 | 音乐，歌曲，英文，合集                                       |
+| https://www.bilibili.com/video/BV1Ax411d7jD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | coincidance                                                  | 每天一遍，网抑再见，万恶之源，抖就完事了                     | 音乐，歌曲，英语                                             |
+| https://www.bilibili.com/video/BV1R34y1Q7J4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Ngana Rindu高级版                                            | Ngana Rindu高级版                                            | 音乐，歌曲，英语                                             |
+| https://www.bilibili.com/video/BV1NZ4y1j7nw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑人抬棺原版                                                 | 黑人抬棺原版视频                                             | 音乐，歌曲，英语                                             |
+| https://www.bilibili.com/video/BV1Mt4y1X718/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | She Taught Me How to  Yodel                                  | 约德尔满级大佬4k60帧算法重制版                               | 音乐，歌曲，约德尔                                           |
+| https://www.bilibili.com/video/BV1gJ411H74f/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 别问我什么是迪斯科                                           | 别问我什么是迪斯科                                           | 音乐，歌曲，张蔷                                             |
+| https://www.bilibili.com/video/BV1YV4y1K7pT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 我不要在失败孤独中死去                                       | 我不要在失败孤独中死去                                       | 音乐，歌曲，张蔷                                             |
+| https://www.bilibili.com/video/BV1vm411Z7ZN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 偏爱                                                         | 张芸京，偏爱                                                 | 音乐，歌曲，张芸京                                           |
+| https://www.bilibili.com/video/BV1pE411Q7TQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 骑在银龙的背上                                               | 日本国宝，中岛美雪，骑在银龙的背上                           | 音乐，歌曲，中岛美雪                                         |
+| https://www.bilibili.com/video/BV1ar4y1C7zq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 可爱女人                                                     | 可爱女人，周杰伦                                             | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1qD4y1U7fs/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 七里香                                                       | 4K，周杰伦《七里香》封神之作！华语乐坛最美的一首歌           | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1BB4y1j7fF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 龙拳                                                         | 周杰伦《龙拳》飞檐走壁现场！                                 | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1mD4y1U7z9/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 一路向北                                                     | 4K，周杰伦，一路向北，万人大合唱现场！                       | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1SA41157Nt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 暗号，演唱会                                                 | 4K，周杰伦，暗号，神级现场！The  one演唱会live               | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1St4y1p7Ee/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 反方向的钟，MV                                               | 4K，周杰伦，反方向的钟，MV完整版                             | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1Ru411t7Aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 夜曲，演唱会                                                 | 4K60FPS，周杰伦《夜曲》地表最强演唱会                        | 音乐，歌曲，周杰伦                                           |
+| https://www.bilibili.com/video/BV1tJ41167Ai/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 周杰伦封神的十大神级金曲                                     | 周杰伦封神的十大神级金曲（地表最强画质）                     | 音乐，歌曲，周杰伦，合集                                     |
+| https://www.bilibili.com/video/BV1ar4y1C7zq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 周杰伦歌曲全集                                               | 周杰伦歌曲全集超清                                           | 音乐，歌曲，周杰伦，合集                                     |
+| https://www.bilibili.com/video/BV1BB4y1j7fF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 周杰伦合集                                                   | 周杰伦                                                       | 音乐，歌曲，周杰伦，合集                                     |
+| https://www.bilibili.com/video/BV1Ru411t7Aj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 周杰伦                                                       | 周杰伦                                                       | 音乐，歌曲，周杰伦，合集                                     |
+| https://www.bilibili.com/video/BV1aE411n7wb/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 囍                                                           | 祖娅纳惜，囍，这什么灵魂唢呐！！                             | 音乐，歌曲，祖娅纳惜                                         |
+| https://www.bilibili.com/video/BV1J4411U7Df/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 子不语罗刹鸟                                                 | 祖娅纳惜·中元特供，子不语 · 罗刹鸟                           | 音乐，歌曲，祖娅纳惜                                         |
+| https://space.bilibili.com/354656677003544                   | 揽佬SKAIISYOURGOD                                            | 揽佬SKAIISYOURGOD                                            | 音乐，歌手，B站UP                                            |
+| https://www.bilibili.com/video/BV1RQX7Y1ExQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Essential  Classic古典，合集                                 | Essential Classic古典                                        | 音乐，古典，合集                                             |
+| https://www.bilibili.com/video/BV13S55zjEt1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纯音乐，合集                                                 | 纯音乐                                                       | 音乐，合集                                                   |
+| https://www.bilibili.com/video/BV1KZT5zxEZD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Daft Punk inspired，合集                                     | Daft Punk inspired                                           | 音乐，合集                                                   |
+| https://www.bilibili.com/video/BV1T6nnzuEDV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 电影配乐精选，古典音乐珍品                                   | 电影配乐精选-古典音乐珍品                                    | 音乐，合集                                                   |
+| https://www.bilibili.com/video/BV1rAnEzdEoQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纯钢琴爵士音乐                                               | 100%纯钢琴爵士音乐】惬意的下午茶时光，超级治愈放松的咖啡馆﹐氛围感爵士JAZZ，纯音乐歌单BGM听歌，陪伴学习专注高效工作 | 音乐，爵士，钢琴                                             |
+| https://www.bilibili.com/video/BV1q5JvzbEVB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纯钢琴爵士音乐                                               | 100%纯钢琴爵士音乐】STARBUCKS  星巴克舒情爵士音乐，不重覆钢琴爵士歌单，帮你集中精神工作丶学习丶平静烦躁及焦虑的心情 ♥咖啡饮休闲必备音乐 | 音乐，爵士，钢琴                                             |
+| https://www.bilibili.com/video/BV1rExvz7EN7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 绅士黑蓝调，合集                                             | Playlist For Men Who  Move In Silence \| Gentleman Song \| Gentleman Dark Blues | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV13S55zjEt1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 不要太爵士                                                   | jazzy but not too  jazzy                                     | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV1T9VKzmEFZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 爵士合集                                                     | 爵士合集 \| 脑力续航站 \|  专注代码/论文/刷题 氛围感自习室/脑内SPA | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV1T9VKzmEFZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 钢琴爵士                                                     | 钢琴爵士                                                     | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV1QpHszFE1f/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 复古爵士                                                     | 复古爵士                                                     | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV1q5JvzbEVB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 抒情爵士音乐，合集                                           | 抒情爵士音乐                                                 | 音乐，爵士，合集                                             |
+| https://www.bilibili.com/video/BV1Zx411h7qU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 加州旅馆，丐版                                               | 宿舍，加州旅馆，原先以为是搞笑的，看了直接跪拜了             | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1Xj411P7n1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Daylight                                                     | “当你身处迷茫困境中，就让这首《Daylight》来治愈你吧”         | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1fT4y137yU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 所念皆星河，星河中是你                                       | 所念皆星河，星河中是你                                       | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1os41197sv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 序曲                                                         | 纯音音乐馆，它们不需要歌词,也可以打动你的心                  | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1PE411e7Dz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全球创下2.1亿播放量的神曲                                    | 全球创下2.1亿播放量的神曲                                    | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1T54y1S7yk/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑人抬棺，民乐                                               | 器乐，当民乐团演奏起了《黑人抬棺》                           | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1e4411o7pa/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管上亿播放量的神级演奏                                     | 油管上亿播放量的神级演奏                                     | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1qPxUeREot/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | манго нектар                                                 | 在弹药殉爆的那一刻，望着满天的火光，他看见了另一个世界的新娘 | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1kW411d7cD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 故事仍在继续                                                 | 以为是个青铜，原来是个王者，永远不要嘲笑努力的人  他只是差一个机会，是人才注定会火 | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1sE411X77Z/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | For the Damaged  Coda，瑞克和莫蒂，插曲                      | 一首用烂了的BGM的出处，《瑞克和莫蒂》的插曲                  | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV14K4y1D7BD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Crystal Dolphin                                              | 这首BGM洗了我们所有人的脑                                    | 音乐，演奏                                                   |
+| https://www.bilibili.com/video/BV1hk4y1B71H/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 嘴里住了个DJ                                                 | 如果10年前知道有B站，我早就把它上传了嘴里住了个DJ            | 音乐，演奏，Bbox                                             |
+| https://www.bilibili.com/video/BV1eb411W7Xt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | animal，油管150万：两小孩口技，animals                       | 油管转发150万视频：两小孩用口技还原小马丁的animals,在网易云找到了 | 音乐，演奏，Bbox                                             |
+| https://www.bilibili.com/video/BV1d84y1S7eU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 浮光                                                         | 在百万豪装录音棚大声听  Jannik《浮光（The History）Hi-res    | 音乐，演奏，Jannik                                           |
+| https://www.bilibili.com/video/BV19h411B7cr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 植物大战僵尸，人声                                           | 僵尸即将抵达，人声演绎，植物大战僵尸，游戏声效，MayTree五月树 | 音乐，演奏，MayTree五月树                                    |
+| https://www.bilibili.com/video/BV1jY411d7qT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 坂本龙一                                                     | 坂本龙一                                                     | 音乐，演奏，坂本龙一，合集                                   |
+| https://www.bilibili.com/video/BV1oK411q7mp/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 圣诞快乐劳伦斯先生                                           | 4K，Hi-Res，坂本龍一《圣诞快乐劳伦斯先生》                   | 音乐，演奏，坂本龙一，交响乐                                 |
+| https://www.bilibili.com/video/BV1jY411d7qT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 圣诞快乐劳伦斯先生                                           | 4k，坂本龙一《圣诞快乐劳伦斯先生》                           | 音乐，演奏，坂本龙一，交响乐                                 |
+| https://www.bilibili.com/video/BV1vJ411k7UH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 菊次郎没挺过夏天，搞笑                                       | 菊次郎没挺过夏天                                             | 音乐，演奏，二胡                                             |
+| https://www.bilibili.com/video/BV1Pv41147Mn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏维埃进行曲，街头                                           | 街头”燃起“《苏维埃进行曲》，小女孩“精苏狂喜”                 | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1WE411D71o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 苏维埃进行曲，街头                                           | 伦敦火车站即兴演奏《钢铁洪流进行曲》钢琴版                   | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1TZ4y147i8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 菊次郎在苏联，即兴                                           | 气突苏菊次郎在苏联（即兴）                                   | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1sT411P7qN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 未闻花名                                                     | 当音乐室有人弹《未闻花名                                     | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1L4411U7Fj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 世界上最治愈的钢琴曲，卡农                                   | 世界上最治愈的钢琴曲卡农                                     | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1xf4y1v7LR/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 俄罗斯名曲                                                   | 俄罗斯化的四种程度                                           | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV11N411Z7Gj/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 时代，前进                                                   | 第三新东京市/Время,  вперёд!/时代，前进！                    | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1Tx411w7pd/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 世上最经典那段卡农                                           | 世上最经典那段卡农，以前都是听录音，终于见到录像了！搞个彩蛋 | 音乐，演奏，钢琴                                             |
+| https://www.bilibili.com/video/BV1Qz4XzDE51/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 舒缓大提琴精选-古典音乐珍品                                  | 舒缓大提琴精选-古典音乐珍品                                  | 音乐，演奏，古典，大提琴                                     |
+| https://www.bilibili.com/video/BV1Sx411T7QQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 古筝千本樱，凶残的练习曲                                     | 古筝千本樱——你可见过如此凶残的练习曲                         | 音乐，演奏，古筝                                             |
+| https://www.bilibili.com/video/BV1Qq4y137iL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 法国街头古筝《See You Again》                                | 法国街头古筝演奏《See You  Again》人山人海 直接炸街          | 音乐，演奏，古筝                                             |
+| https://www.bilibili.com/video/BV1mJ411E7jN/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 法国街头国乐《十面埋伏》                                     | 法国街头遇见国乐《十面埋伏》，有点霸气哦                     | 音乐，演奏，古筝                                             |
+| https://www.bilibili.com/video/BV16y4y1N7jm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 法国街头《悬溺》                                             | 法国街头《悬溺》一响，古筝登场～现场氛围直接拉满             | 音乐，演奏，古筝                                             |
+| https://www.bilibili.com/video/BV1PK411L7h5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 兰陵王入阵曲                                                 | 鼓乐《兰陵王入阵曲》耳机开最大！来听千军万马                 | 音乐，演奏，鼓                                               |
+| https://www.bilibili.com/video/BV1vb411C7qL/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 摇滚鼓手迫于生计，给儿歌伴奏…一分钟后重金属含量就超标了      | 当一名摇滚鼓手迫于生计，不得不给儿歌伴奏时…一分钟后这首儿歌的重金属含量就超标了 | 音乐，演奏，鼓                                               |
+| https://www.bilibili.com/video/BV1Us411f7LB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Croatian Rhapsody                                            | 看到鼓手时我跪下尿了一地！                                   | 音乐，演奏，鼓                                               |
+| https://www.bilibili.com/video/BV1AV411J7e5/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管播放1.7亿次的架子鼓                                      | 油管播放1.7亿次的架子鼓                                      | 音乐，演奏，鼓                                               |
+| https://www.bilibili.com/video/BV1KA411L7cq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 万恶之源的打鼓小伙原视频                                     | 万恶之源的打鼓小伙原视频                                     | 音乐，演奏，鼓                                               |
+| https://www.bilibili.com/video/BV1HYreYCEQ8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 那些宿命感拉满的顶级纯音乐                                   | 那些宿命感拉满的顶级纯音乐                                   | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1fT4y137yU/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 治愈星空合集                                                 | 治愈星空                                                     | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1os41197sv/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 纯音音乐馆合集                                               | 纯音音乐馆                                                   | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1MFvPzYEaw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 那些旋律封神的顶级纯音乐合集                                 | 那些旋律封神的顶级纯音乐                                     | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV169VrzeExV/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 循环歌单                                                     | 循环歌单                                                     | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1ef4y1P7xD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全网最火的七首万恶之源BGM                                    | 终于找到了全网最火的七首万恶之源BGM，音乐一响全村吃席！      | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1fjt1zjErF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 私人致享合集                                                 | 私人致享                                                     | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1RV4y1F7di/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 气突苏，合集                                                 | 气突苏                                                       | 音乐，演奏，合集                                             |
+| https://www.bilibili.com/video/BV1fs411S7u7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 墨韵随步摇，司鼓君                                           | 筝鼓和鸣】权御天下 ——墨韵随步摇 司鼓君                       | 音乐，演奏，合奏                                             |
+| https://www.bilibili.com/video/BV1Ha4y1C7Df/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 未闻太君名                                                   | 未闻太君名                                                   | 音乐，演奏，吉他                                             |
+| https://www.bilibili.com/video/BV16J411b7CK/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 9年了还没人超越，Promise，寂静岭                             | 9年了还没人超越这个版本，由由的吉他 Promise 寂静岭           | 音乐，演奏，吉他                                             |
+| https://www.bilibili.com/video/BV18C411H7Yn/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 当NBA仅雇用一名吉他手进行中场表演                            | Marcin，当NBA仅雇用一名吉他手进行中场表演                    | 音乐，演奏，吉他，Marcin                                     |
+| https://www.bilibili.com/video/BV1RV4y1F7di/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 菊次郎在苏联交响史诗版                                       | 气突苏菊次郎的苏联故事                                       | 音乐，演奏，交响乐                                           |
+| https://www.bilibili.com/video/BV1PE411A7zt/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 琵琶行                                                       | 绝了！原来白居易的《琵琶行》是真实存在的                     | 音乐，演奏，琵琶                                             |
+| https://www.bilibili.com/video/BV1vx411w7Hc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 十面埋伏，独奏，刘德海                                       | 刘德海大师琵琶独奏《十面埋伏》                               | 音乐，演奏，琵琶                                             |
+| https://www.bilibili.com/video/BV1a441197aH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | careless  whisper，果然萨克斯是最骚的                        | 果然萨克斯是最骚的                                           | 音乐，演奏，萨克斯                                           |
+| https://www.bilibili.com/video/BV1g7411x72W/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 菊次郎挺到了冬天                                             | 菊次郎挺到了冬天                                             | 音乐，演奏，唢呐                                             |
+| https://www.bilibili.com/video/BV1aMS7YNEWZ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全4000多集，英语启蒙动画片，1-9级别                          | 全套4000多集，B站最全的英语启蒙动画片，1-9级别4000多集，  涵盖视频音频电子书PDF全套资料！英语启蒙这一套动画就够啦！ | 英文，动画，儿童，启蒙                                       |
+| https://www.bilibili.com/video/BV1uT411z7Xz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 【【学龄前最佳STEM英文动画】Ask  the StoryBots问问故事小机器人1-3季22集内嵌英文字幕 story bots netflix】 | 学龄前最佳STEM英文动画，Ask the  StoryBots问问故事小机器人1-3季22集内嵌英文字幕 story bots netflix】 | 英文，动画，儿童，问问故事小机器人（S1-3  22集）             |
+| https://www.bilibili.com/video/BV1Xo4y1B7Z1/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 120集，3-6岁英文绘本动画，【有配套PDF文本和教案】！火爆欧美的VOOKS绘本动画系列，与经典绘本配套的动画片！配乐一流、发音一流，绘本治愈大人和孩子！ | 【【120集】3-6岁英文绘本动画，【有配套PDF文本和教案】！火爆欧美的VOOKS绘本动画系列，与经典绘本配套的动画片！配乐一流、发音一流，绘本治愈大人和孩子！】 | 英文，阅读，儿童，3-6岁英文绘本动画（120集）                 |
+| https://space.bilibili.com/584902613?spm_id_from=333.788.upinfo.head.clic | TED英语，B站UP                                               | TED英语                                                      | 英语，B站UP，演讲，TED                                       |
+| https://space.bilibili.com/692622187?spm_id_from=333.788.upinfo.head.clic | 纽约Raphael英语，B站UP                                       | 纽约Raphael英语                                              | 英语，B站UP，综合                                            |
+| https://space.bilibili.com/485163549?spm_id_from=333.788.upinfo.head.clic | 大胡子老师-Jesse，B站UP                                      | 大胡子老师-Jesse                                             | 英语，B站UP，综合                                            |
+| https://www.bilibili.com/video/BV1YC4y1t7yF/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 20分钟学会100个英文常用短语                                  | 20分钟学会100个英文常用短语                                  | 英语，词汇                                                   |
+| https://www.bilibili.com/video/BV1p7411s7aq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管最好背单词教程                                           | 油管最最最好用的背单词教程\|英语\|单词                       | 英语，词汇，启蒙                                             |
+| https://www.bilibili.com/video/BV1K64y1F7XQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 600集全幼儿启蒙基础词汇英文动画系列                          | 600集全幼儿启蒙  基础词汇学习英文动画系列 Kids vocabulary    | 英语，词汇，启蒙                                             |
+| https://www.bilibili.com/video/BV1Av411N7P7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 2009-2021英语高考真题:短语搭配合集                           | 2009-2021英语高考真题:短语搭配合集-预告                      | 英语，高考，词汇                                             |
+| https://www.bilibili.com/video/BV1enmmYDEJs/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 全364集英语科学科普视频，MinuteEarth分钟地球                 | 全364集+英语科学科普视频《MinuteEarth分钟地球》每集了解一个地球冷知识，，1080P高清视频带英文字幕 | 英语，科普，地理                                             |
+| https://www.bilibili.com/video/BV11u4y1z7p6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管儿童动物科普全350集，动物奇观Animal  Wonders             | 火爆油管的英文儿童动物科普全350集动物奇观  Animal Wonders 科普英语 让孩子大开眼界 了解动物知识 学英语涨见识 | 英语，科普，动物                                             |
+| https://www.bilibili.com/video/BV1GN411p791?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 趣谈各国国旗背后的历史，Fun With  Flags短片53个+DK国旗百科全书 | 趣谈各国国旗背后的历史 Fun With Flags短片53个+DK国旗百科全书 | 英语，课程，儿童，DK国旗百科                                 |
+| https://www.bilibili.com/video/BV1dr4y1K7Z2/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | EnglishPod保姆级跟读教程，口语发音听力提高                   | 合集，EnglishPod保姆级跟读教程英语口语发音听力提高           | 英语，口语，课程                                             |
+| https://www.bilibili.com/video/BV1jv411L7Lr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 自信口语教程 Speak  Confident English合集                    | 英语说更流利的英语！自信口语教程  Speak Confident English合集 | 英语，口语，课程                                             |
+| https://www.bilibili.com/video/BV16F4MzzE5H/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英语跟读学习，Efficient  training of Spoken English Listening | 英语口语听力跟读学习 Efficient  training of Spoken English Listening | 英语，口语，课程                                             |
+| https://www.bilibili.com/video/BV1fv411n73Q/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 如果你不想学习, 就坚持把这个视频看完                         | 如果你不想学习, 就坚持把这个视频看完                         | 英语，励志                                                   |
+| https://www.bilibili.com/video/BV1HV4y1v75o/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Crash Course Kids  104集                                     | 104集，YouTube儿童英语科学教学动画短片《Crash  Course Kids，每天10分钟快速掌握科普知识！】 | 英语，启蒙，课程                                             |
+| https://www.bilibili.com/video/BV1hJ411W7BT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 读原版，第1阶AA，习得英语，英文绘本                          | 读原版\|第1阶AA\|适合所有人\|学完达到英语母语水平，习得英语，形成英语思维\|中考&高考&四六级&托福&雅思&GRE英文绘本 | 英语，听力                                                   |
+| https://www.bilibili.com/video/BV1U8411n7Mu?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK儿童百科Find Out                                           | DK儿童百科，不一样的英语科普，72集全，DK  Find Out，精品科普 | 英语，听力，课程，科普，动物，儿童，DK，百科                 |
+| https://www.bilibili.com/video/BV1yy4y1G7Kz/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 心谷大学，整合人生全套课程                                   | 心谷大学《整合人生》全套课程 （英文字幕）                    | 英语，听力，课程，人生                                       |
+| https://www.bilibili.com/video/BV19f4y1y77X/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Reading Pioneer's  Academy英文有声绘本故事89篇（1/4）        | Reading Pioneer's  Academy - Audiobook with Picture 89P 英文有声绘本故事89篇 （1/4） | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV19L411p7eX/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 小宝宝直观理解四季                                           | 学习四季的表达，每个季节都有什么特点？小宝宝们直观理解四个季节 | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV13V411x7WH/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 星期几英文歌                                                 | Days of the week and  subjects song星期几英文歌              | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV1P5411T7q4/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 三只小猫英文歌                                               | 三只小猫Three Little  Kittens                                | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV1yK4y1M7vy/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 外教启蒙字母J                                                | 外教启蒙英语字母J                                            | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV18q4y1W75j/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英文绘本，A Dog for Each  Day                                | 英文绘本阅读，A Dog for Each  Day，每天一只狗                | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV11q4y1W7kB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 迪斯尼频道字母歌                                             | A, B, C (Disney  Junior) 英文字母歌                          | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV1Z44y1i7Gt/?share_source=copy_we | 英文绘本，Hippo Says  "Excuse Me"                            | 英文绘本阅读，Hippo Says  "Excuse Me" ，河马说“不好意思”     | 英语，听力，启蒙                                             |
+| https://www.bilibili.com/video/BV185411w7h6/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 我的第一套亲子英文绘本                                       | 合集我的第一套亲子英文绘本                                   | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV1eA411g7Lc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 油管超火英文故事合集                                         | 油管转载超火的英文故事合集                                   | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV12o4y1y7Uf/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 慢速英文绘本We will ROCK  our CLASSMATES                     | 慢速读英文绘本] We will ROCK  our CLASSMATES                 | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV1kV411x7UW/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英文绘本动画系列                                             | 英文绘本动画系列                                             | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV1mK4y1p7ya/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | （29本全）小猪小象Elephant  and piggie，英语绘本故事         | （29本全）小猪小象Elephant  and piggie 英语绘本故事3-7岁     | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV18Q4y1M7Fq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | Oxford Let's go Level  1少儿早教英语科学启蒙教育             | Oxford Let's go Level  1 英语版 儿童少儿早教英语科学启蒙教育 | 英语，听力，少儿                                             |
+| https://www.bilibili.com/video/BV1BV411E74e/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美国小学英语课本1A                                           | 美国小学英语课本1A                                           | 英语，听力，小学                                             |
+| https://www.bilibili.com/video/BV1ZV411a7Fc/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 年度最受欢迎十大TED演讲第一名：再平淡无聊的生活，也可以变得有趣起来 | TED双语字幕 \|  年度最受欢迎十大TED演讲第一名：再平淡无聊的生活，也可以变得有趣起来 | 英语，听力，演讲，TED                                        |
+| https://www.bilibili.com/video/BV1kd6bYbEit/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 800集全，美中小学原版教材课程精讲                            | 800集全，教材跟读讲解字幕版，美中小学原版教材课程精讲        | 英语，小学，课程                                             |
+| https://www.bilibili.com/video/BV1EkH8zQEAm/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美国中小学教学                                               | 英文字幕+高清PDF+纸质教材】美国中小学原版教材纯英文教学      | 英语，小学，课程                                             |
+| https://www.bilibili.com/video/BV1Hf4y1r7NT/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 日常生活中的神经科学 Huberman  Lab Podcast                   | 日常生活中的神经科学 Huberman  Lab Podcast                   | 英语，学习方法                                               |
+| https://www.bilibili.com/video/BV1Ht411y7Ja/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 雅思系列                                                     | 雅思系列                                                     | 英语，雅思                                                   |
+| https://www.bilibili.com/video/BV1S5411K7m7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 美式英语讲解                                                 | 记住了，"我是美国人"翻译成英语可不是“I  am an American”,美式英语讲解，中英文双语字幕 | 英语，语法                                                   |
+| https://www.bilibili.com/video/BV1344y167Jw/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 每天一篇《经济学人》2021年6月                                | 每天一篇《经济学人》中英对照合集（2021年6月）持续更新        | 英语，阅读                                                   |
+| https://www.bilibili.com/video/BV1Zu411c75Z?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 财商绘本Money bunny                                          | 孩子必读的经典财商绘本Money  bunny不仅获得财商的培养，还能学习地道的英文 | 英语，阅读，儿童，财商，绘本                                 |
+| https://www.bilibili.com/video/BV12F411z7rD/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 60集英文，超精致的绘本动画                                   | 【【60集英文】超精致的绘本动画】                             | 英语，阅读，儿童，绘本                                       |
+| https://www.bilibili.com/video/BV1PD4y147W9?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 英语情商社交儿童启蒙绘本Pip and  Posy油管动画同步更新中【英文字幕】 | 【英语情商社交儿童启蒙绘本Pip and  Posy油管动画同步更新中【英文字幕】 | 英语，阅读，儿童，情商，启蒙                                 |
+| https://www.bilibili.com/video/BV1EK4y1a71Y?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK茶的百科                                                   | DK茶的百科                                                   | 英语，阅读，课程，DK，茶，百科                               |
+| https://www.bilibili.com/video/BV1w6421c7xu?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK，Findout，百科系列                                        | DK，Findout，百科系列视频全集+31本PDF                        | 英语，阅读，课程，儿童，DK  Findout!，百科                   |
+| https://www.bilibili.com/video/BV1cg4y1W7M7?vd_source=67a5fbe3a1f6f892e5a9c0536157070 | DK，findout，31册绘本+科普视频动画72集                       | 百科全书，DK里程碑级的革新力作！《DK  findout》31册绘本+科普视频动画72集 | 英语，阅读，课程，儿童，DK  Findout!，百科                   |
+| https://www.bilibili.com/video/BV1xnqzYpER8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 黑神话：悟空，相关                                           | 黑神话：悟空，相关                                           | 游戏，专辑                                                   |
+| https://www.bilibili.com/video/BV1drW7zDEc8/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 有声书，末日生存：我的末日城堡                               | 末日生存] 我的末日城堡（完结）                               | 有声书，中国                                                 |
+| https://www.bilibili.com/video/BV1bb4cziECQ/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 有声书，光明纪元                                             | 光明纪元，ZH有声书                                           | 有声书，中国                                                 |
+| https://www.bilibili.com/video/BV1ptngzqEnB/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 北京大学，语言学概论，国家级精品课程，思想的边界时语言       | 北京大学，语言学概论，国家级精品课程，思想的边界时语言       | 语言，课程，北京大学，语言学概论                             |
+| https://www.bilibili.com/video/BV1Ss411f7zq/?share_source=copy_we | 选择背后的惊人秘密，我们是否真正主宰自己的决定               | 选择背后的惊人秘密，我们是否真正主宰自己的决定?              | 哲学，世俗                                                   |
+| https://space.bilibili.com/3546574294616231?spm_id_from=333.788.upinfo.head.clic | B站UP主，杰哥观察者模式启动中，社会问题讨论                  | 杰哥观察者模式启动中，社会问题讨论                           | 哲学，世俗，B站UP                                            |
+| https://space.bilibili.com/31341757/lists                    | B站UP主，DngGentle，社会问题讨论                             | DngGentle，社会问题讨论                                      | 哲学，世俗，B站UP                                            |
+| https://www.bilibili.com/video/BV1G2o4Y1E3a/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 认知开窍系列，合集                                           | 认知开窍系列                                                 | 哲学，世俗，合集                                             |
+| https://www.bilibili.com/video/BV1y34y1s7x7/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 那些无法超越的台词与画面                                     | 那些无法超越的台词与画面                                     | 哲学，思想，精句                                             |
+| https://www.bilibili.com/video/BV1P142187Lr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 军事历史，合集                                               | 军事历史                                                     | 政治，军事，历史，问题，合集                                 |
+| https://www.bilibili.com/video/BV1P142187Lr/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 为什么韩国人会讨厌我们中国人                                 | 为什么韩国人会讨厌我们中国人？因为这件事本身对我们来说很搞笑 | 政治，问题                                                   |
+| https://www.bilibili.com/video/BV1mU4y1f7kq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 植物分类学                                                   | 植物分类学                                                   | 植物，分类学，合集                                           |
+| https://www.bilibili.com/video/BV1DN411j7U3/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 植物分类与系统发育，蕨妙内卷                                 | 植物分类与系统发育SZ01  蕨妙内卷——石松类与真蕨类概述（1）：蕨类的叶片 | 植物，蕨类，课程                                             |
+| https://www.bilibili.com/video/BV1mU4y1f7kq/?share_source=copy_web&vd_source=67a5fbe3a1f6f892e5a9c0536157070 | 植物分类与系统发育，课前唠嗑                                 | 植物分类与系统发育01 课前唠嗑 ＋  植物登陆与世代交替】       | 植物，苔藓，课程                                             |
